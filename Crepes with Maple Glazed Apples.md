@@ -1,5 +1,5 @@
 # Crepes with Maple Glazed Apples
-#recipe #food/cooking# #food #food/breakfast# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/breakfast# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Crepes with Maple Glazed Apples](https://dennistheprescott.com/2016/02/09/crepes-with-maple-glazed-apples/)
 

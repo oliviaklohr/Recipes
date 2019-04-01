@@ -1,5 +1,5 @@
 # Slow Cooker Curried Butternut Squash Soup
-#recipe #food/cooking# #food #food/soup# #people/Little Spice Jar# #slow cooker#
+#recipe #food/cooking# #food/soup# #people/Little Spice Jar# #slow cooker# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Slow Cooker Curried Butternut Squash Soup Recipe | Little Spice Jar](http://littlespicejar.com/curried-butternut-squash-soup-slow-cooker/)
 

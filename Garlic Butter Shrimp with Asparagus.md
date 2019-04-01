@@ -1,5 +1,5 @@
 # Garlic Butter Shrimp with Asparagus
-#recipe #food/cooking# #food #food/dinner# #people/EatWell 101# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/seafood #food/dinner# #food/30 Minutes or Less# #people/EatWell 101# #need to make#  #needs nutrition info# #2019/January#
 - - - -
 [Garlic Butter Shrimp with Asparagus — Eatwell101](https://www.eatwell101.com/category/healthy-cooking-tips-cook-guide-how-to-cook-well)
 

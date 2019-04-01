@@ -1,5 +1,5 @@
 # Creamy Parmesan Orzo with Chicken and Asparagus
-#recipe #food/cooking# #food #food/dinner# #people/Craving Home Cooked# #food/30 Minutes or Less#
+#recipe #food/cooking# #food #food/dinner# #food/30 Minutes or Less# #people/Craving Home Cooked# #have made# #Dylan Approved# #2019/January#
 - - - -
 [Creamy Parmesan Orzo with Chicken and Asparagus - Craving Home Cooked](https://cravinghomecooked.com/creamy-parmesan-orzo-with-chicken-and-asparagus/)
 
@@ -40,3 +40,10 @@ Garnish with more Parmesan cheese if preferred, and parsley. Serve warm.
 Half and half is equal parts whole milk and light cream and it usually averages 10 to 12% fat, which is usually less than light cream. 
  
 This dish is quite versatile. Add more nutrition to it by adding in more veggies such as spinach, broccoli, mushrooms or peas.
+
+## Nutrition
+### Servings: 6
+Calories: 556cal
+Fat: 24g
+Carbs: 47g
+Protein: 37g

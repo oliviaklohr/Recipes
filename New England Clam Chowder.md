@@ -1,6 +1,6 @@
 # New England Clam Chowder
-#recipe #food/cooking #food #food/soup# #people/Cooking with Cocktail Rings#
-
+#recipe #food/cooking #food/seafood# #food/soup# #people/Cooking with Cocktail Rings# #need to make# #2019/January# #needs nutrition info#
+- - - -
 [New England Clam Chowder](http://www.cookingwithcocktailrings.com/soup/2018/new-england-clam-chowder)
 
 ## Ingredients

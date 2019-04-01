@@ -1,5 +1,5 @@
 # Seasoned Chicken, Potatoes and Green Beans
-#recipe #food/cooking# #food #food/dinner# #people/The Magical Slow Cooker# #slow cooker#
+#recipe #food/cooking# #food/dinner# #people/The Magical Slow Cooker# #slow cooker# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Seasoned Chicken, Potatoes and Green beans - The Magical Slow Cooker](https://www.themagicalslowcooker.com/seasoned-chicken-potatoes-and-green-beans/)
 

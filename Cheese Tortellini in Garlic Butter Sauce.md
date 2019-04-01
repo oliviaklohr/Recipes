@@ -1,5 +1,5 @@
 # Cheese Tortellini in Garlic Butter Sauce
-#recipe #food/cooking# #food #food/dinner #people/Culinary Hill# #food/pasta
+#recipe #food/cooking# #food/dinner #food/pasta #people/Culinary Hill# #need to make# #2019/January#
 - - - -
 [Cheese Tortellini in Garlic Butter Sauce](https://www.culinaryhill.com/cheese-tortellini-in-garlic-basil-sauce/)
 
@@ -27,3 +27,10 @@ Pour into a serving dish and garnish with Parmesan cheese and parsley, if desire
 Refrigerated tortellini can be substituted; it will float in 2 to 3 minutes. If you want to use dried tortellini, follow the instructions on the package (should be about 10 to 11 minutes).
 
 Serves 8 as an appetizer or first course (2 ounces per person, 275 calories per serving). Keep warm in a slow cooker if serving a buffet.
+
+## Nutrition
+### Servings: 4
+Calories: 551cal
+Fat: 22.5g
+Carbs: 65g
+Protein: 21g

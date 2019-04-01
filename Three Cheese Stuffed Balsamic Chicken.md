@@ -1,5 +1,5 @@
 # Three Cheese Stuffed Balsamic Chicken
-#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# #one pan#
+#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# #one pan# #need to make# #2019/Februrary# #needs nutrition info#
 - - - -
 [Three Cheese Stuffed Balsamic Chicken | Creme De La Crumb](https://www.lecremedelacrumb.com/three-cheese-stuffed-balsamic-chicken/)
 
@@ -30,3 +30,10 @@ Transfer pan/skillet to oven and bake for about 15-20 minutes until chicken is c
 
 ### Recipe Notes
 If you don't have an oven safe pan or skillet, you can do this in a normal pan and then transfer everything into a casserole/baking dish or pan for baking portion. 
+
+## Nutrition
+### Servings: 4
+Calories: 546
+Fat: 24g
+Carbs: 42g
+Protein: 40g

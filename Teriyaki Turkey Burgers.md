@@ -1,5 +1,5 @@
 # Teriyaki Turkey Burgers
-#recipe #food/cooking# #food #food/dinner# #people/All Recipes# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/dinner# #food/30 Minutes or Less# #people/All Recipes# #have made# #Dylan Approved# #2019/March#
 - - - -
 [Teriyaki Turkey Burgers](https://www.allrecipes.com/recipe/216961/teriyaki-pineapple-turkey-burgers/)
 
@@ -20,3 +20,10 @@ Mix together turkey, ginger, Kikkoman Panko Bread Crumbs and 2 tablespoons Teriy
 Grill patties, brushing with remaining Teriyaki mixture until desired doneness. Place pineapple slices on grill and cook until lightly golden brown.
 
 Serve burger on buns with cheese and pineapple.
+
+## Nutrition
+### Servings: 4
+Calories: 531cal
+Fat: 24.3g
+Carbs: 39.6g
+Protein: 43.6

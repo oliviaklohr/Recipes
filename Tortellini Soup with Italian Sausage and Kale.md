@@ -1,5 +1,5 @@
 # Tortellini Soup with Italian Sausage and Kale
-#recipe #food/cooking #food #food/soup# #people/The Modern Proper#
+#recipe #food/cooking #food/soup# #people/The Modern Proper# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Tortellini Soup with Italian Sausage and Kale | The Modern Proper](https://themodernproper.com/posts/tortellini-soup-with-italian-sausage-and-kale)
 

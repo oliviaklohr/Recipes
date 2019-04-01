@@ -1,5 +1,5 @@
 # Japanese Onion Soup
-#recipe #food/cooking #food #food/soup #people/Genius Kitchen#
+#recipe #food/cooking #food #food/soup #people/Genius Kitchen# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Miyabi Japanese Onion Soup Recipe - Genius Kitchen](https://www.geniuskitchen.com/recipe/miyabi-japanese-onion-soup-410663?ftab=tweaks)
 

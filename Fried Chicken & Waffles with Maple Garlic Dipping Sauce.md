@@ -1,5 +1,5 @@
 # Fried Chicken & Waffles with Maple Garlic Dipping Sauce
-#recipe #food/cooking# #food #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/dinner# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Fried Chicken & Waffles with Maple Garlic Dipping Sauce | Dennis The Prescott](https://dennistheprescott.com/2015/08/24/fried-chicken-waffles-with-maple-garlic-dipping-sauce/)
 

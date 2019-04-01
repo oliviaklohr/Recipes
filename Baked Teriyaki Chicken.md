@@ -1,5 +1,6 @@
 # Baked Teriyaki Chicken
-#recipe #food/cooking# #food #food/dinner# #food/Chinese #people/Creme De La Crumb# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/Asian #food/dinner# #food/Chinese #food/30 Minutes or Less#
+#people/Creme De La Crumb# #have made# #Dylan Approved# #2019/January# #needs nutrition info#
 - - - -
 [Best Ever Baked Teriyaki Chicken | Creme De La Crumb](https://www.lecremedelacrumb.com/best-ever-baked-teriyaki-chicken/)
 

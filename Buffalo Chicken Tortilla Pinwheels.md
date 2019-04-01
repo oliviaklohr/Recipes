@@ -1,5 +1,5 @@
 # Buffalo Chicken Tortilla Pinwheels
-#recipe #food/cooking# #food #food/side dish# #people/Home Cooking Memories#
+#recipe #food/cooking# #food/side dish# #food/party# #people/Home Cooking Memories# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Buffalo Chicken Tortilla Pinwheels Recipe - Home Cooking Memories](https://homecookingmemories.com/buffalo-chicken-tortilla-pinwheels/)
 

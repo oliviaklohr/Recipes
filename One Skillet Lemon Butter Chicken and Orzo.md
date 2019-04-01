@@ -1,5 +1,5 @@
 # One Skillet Lemon Butter Chicken and Orzo
-#recipe #food/cooking# #food #food/dinner# #people/Half Baked Harvest# #one pan#
+#recipe #food/cooking# #food/dinner# #people/Half Baked Harvest# #one pan# #have made# #Dylan Approved# #2019/January# #needs nutrition info#
 - - - -
 [One Skillet Lemon Butter Chicken and Orzo. - Half Baked Harvest](https://www.halfbakedharvest.com/one-skillet-lemon-butter-chicken-and-orzo/)
 

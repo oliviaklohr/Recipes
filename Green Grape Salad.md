@@ -1,5 +1,5 @@
 # Green Grape Salad
-#recipe #food #food/dessert# #people/All Recipes#
+#recipe #food/dessert# #people/All Recipes# #need to make# #2019/January#
 - - - -
 [Green Grape Salad Recipe](https://www.allrecipes.com/recipe/24378/green-grape-salad/)
 
@@ -14,3 +14,10 @@
 
 ## Process
 Wash and dry grapes. In a large bowl, mix together the cream cheese, sour cream, sugar and vanilla. Add grapes and mix until evenly incorporated. Sprinkle with brown sugar and pecans, mix again and refrigerate until serving.
+
+## Nutrition
+### Servings: 8
+Calories: 479cal
+Fat: 27g
+Carbs: 60g
+Protein: 6g

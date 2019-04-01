@@ -1,5 +1,5 @@
 # Tomato Bisque
-#recipe #food/soup# #food #food/cooking #people/Food Network#
+#recipe #food/soup# #food/cooking #people/Food Network# #have made# #Dylan Approved# #2019/January# #needs nutrition info#
 - - - -
 [Tomato Bisque](https://www.foodnetwork.com/recipes/food-network-kitchen/tomato-bisque-recipe-2011496)
 

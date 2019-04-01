@@ -1,5 +1,5 @@
 # Skillet Chicken in Creamy Sun Dried Tomato Sauce
-#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/dinner# #food/30 Minutes or Less# #people/Creme De La Crumb# #have made# #Dylan Approved# #needs nutrition info# #2019/Februrary#
 - - - -
 [Skillet Chicken in Creamy Sun Dried Tomato Sauce | Creme De La Crumb](https://www.lecremedelacrumb.com/skillet-chicken-creamy-sun-dried-tomato-sauce/)
 

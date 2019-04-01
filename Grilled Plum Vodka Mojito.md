@@ -1,5 +1,5 @@
 # Grilled Plum Vodka Mojito
-#recipe #food/alcohol# #food/drinks#  #people/Dennis The Prescott# 
+#recipe #food/alcohol# #food/drinks#  #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Grilled Plum Vodka Mojito](https://dennistheprescott.com/2016/09/02/grilled-plum-vodka-mojito/)
 

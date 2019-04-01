@@ -1,5 +1,5 @@
 # Lemon Rosemary Chicken with Fingerling Potatoes, Green Beans, & Goats Cheese
-#recipe #food/cooking# #food  #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/dinner# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Lemon Rosemary Chicken with Fingerling Potatoes, Green Beans, & Goats Cheese](https://dennistheprescott.com/2015/09/02/1137/)
 

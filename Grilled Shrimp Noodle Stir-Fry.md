@@ -1,5 +1,5 @@
 # Grilled Shrimp Noodle Stir-Fry
-#recipe #food/cooking# #food #food/Chinese# #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/Chinese# #food/dinner# #people/Dennis The Prescott# #needs nutrition info# #need to make# #2018/December#
 - - - -
 [Grilled Shrimp Noodle Stir-fry | Dennis The Prescott](https://dennistheprescott.com/2015/06/08/grilled-shrimp-noodle-stir-fry/)
 

@@ -1,5 +1,5 @@
 # Chicken Gyros & Tzatziki Sauce
-#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/dinner# #food/30 Minutes or Less# #people/Creme De La Crumb# #need to make# #needs nutrition info# #2019/Februrary#
 - - - -
 [Chicken Gyros & Tzatziki Sauce](https://www.lecremedelacrumb.com/easy-chicken-gyros-tzatziki-sauce/)
 
@@ -24,4 +24,4 @@ Squeeze water out of cucumbers. Puree all sauce ingredients in a blender or food
 
 Season chicken breasts with mediterranean seasoning. Cook in a large skillet or pan over medium heat 5-6 minutes on each side until cooked through. Cut into strips.
 
-Lay pitas on a clean surface. Add lettuce (if desired, chicken, red pepper strips, and onions. Top with tzatziki sauce and feta (if desired). Fold pita over like a sandwich, or roll it into a "tunnel shape".
+Lay pitas on a clean surface. Add lettuce (if desired), chicken, red pepper strips, and onions. Top with tzatziki sauce and feta (if desired). Fold pita over like a sandwich, or roll it into a "tunnel shape".

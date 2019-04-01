@@ -1,11 +1,11 @@
 # Baked Sesame Chicken
-#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# 
+#recipe #food/cooking# #food/Asian #food/dinner# #people/Creme De La Crumb# #need to make# #2019/March#
 - - - -
 [Baked Sesame Chicken](https://www.lecremedelacrumb.com/baked-sesame-chicken/)
 
 ## Ingredients
 3-4 chicken breasts, cut into bite size pieces
-1 cup corn starch
+1/2 cup corn starch
 6 tablespoons honey
 4 tablespoons ketchup
 3 tablespoons sugar
@@ -26,3 +26,10 @@ In a bowl, whisk together all sauce ingredients, set aside.
 Add chicken and 1 cup corn starch to a large ziplock bag. Seal and shake to coat chicken. Transfer chicken to a large pan or skillet drizzled with oil. Saute chicken over medium high heat until browned (2-4 minutes).
 
 Toss chicken in the prepared sauce. Transfer to baking dish. Bake for 20-25 minutes until chicken is cooked through. Serve with sesame seeds and green onions for garnish if desired. Enjoy!
+
+## Nutrition
+### Servings: 4
+Calories: 571cal
+Fat: 6.8g
+Carbs: 79g
+Protein: 49.1g

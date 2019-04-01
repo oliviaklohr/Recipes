@@ -1,5 +1,5 @@
 # Sun Dried Tomato Basil and Parmesan Orzo with Chicken
-#recipe #food/cooking# #food #food/dinner# #people/Cooking Classy#
+#recipe #food/cooking# #food/dinner# #people/Cooking Classy# #need to make# #2019/January#
 - - - -
 [Sun Dried Tomato Basil and Parmesan Orzo with Chicken - Cooking Classy](https://www.cookingclassy.com/sun-dried-tomato-basil-and-parmesan-orzo-with-chicken/)
 
@@ -26,3 +26,10 @@ Bring broth to a boil then add orzo pasta, reduce heat to medium cover pan with 
 Once pasta has cooked through toss chicken in with orzo then remove from heat. Add in parmesan cheese and stir until melted, then toss in sun dried tomatoes, basil and season with pepper (you shouldn't need any salt but add a little if you'd think it needs it). 
 
 Add more broth to thin if desired (as the pasta rests it will soak up excess liquid and I liked it with a little excess so I added a little more). Serve warm.
+
+## Nutrition
+### Servings: 4
+Calories: 477cal
+Fat: 13g
+Carbs: 47g
+Protein: 34g

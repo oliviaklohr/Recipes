@@ -1,5 +1,5 @@
 # Sweet and Sour Chicken
-#recipe #food/cooking# #food #food/dinner# #people/Creme De La Crumb# #food/30 Minutes or Less#
+#recipe #food/cooking# #food/dinner# #food/30 Minutes or Less# #people/Creme De La Crumb# #have made# #Dylan Approved# #2019/March# 
 - - - -
 [Sweet and Sour Chicken](https://www.lecremedelacrumb.com/healthy-sweet-sour-chicken/)
 
@@ -30,3 +30,10 @@ Add sauce to chicken and peppers. Stir to coat well. Serve warm with cooked rice
 ## Recipe Notes
 * If you don't have onion salt, use garlic salt instead of garlic powder, and use onion powder instead of garlic salt. 
 * If you don't mind a slightly less-healthy version and looooove sauce, you can double the sauce recipe.
+
+## Nutrition
+### Servings: 4
+Calories: 549cal
+Fat: 12.6g
+Carbs: 59.1g
+Protein: 49g

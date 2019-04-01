@@ -1,5 +1,5 @@
 # Chicken Parmesan
-#recipe #food/cooking# #food #food/dinner #people/The Feed Feed#
+#recipe #food/cooking# #food/dinner #people/The Feed Feed# #have made# #Dylan Approved# #2019/January# #needs nutrition info#
 - - - -
 [Chicken Parmesan](https://thefeedfeed.com/thedaleyplate/chicken-parmesan)
 

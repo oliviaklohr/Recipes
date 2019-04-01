@@ -1,5 +1,5 @@
 # Healthy Buffalo Cauliflower Bites
-#recipe #food/cooking #food #food/side dish# #people/Gal on a Mission#
+#recipe #food/cooking #food/side dish# #people/Gal on a Mission# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Healthy Buffalo Cauliflower Bites](https://www.galonamission.com/healthy-buffalo-cauliflower-bites/)
 

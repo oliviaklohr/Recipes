@@ -1,5 +1,5 @@
 # One Pan Herb Crusted Salmon with Garlicky Asparagus and Heirloom Cherry Tomatoes
-#recipe #food/cooking# #food #food/dinner# #people/Waiting on Martha#
+#recipe #food/cooking# #food/dinner# #food/seafood# #people/Waiting on Martha# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [One Sheet Pan Herb Crusted Salmon with Garlicky Green Beans & Cherry Tomatoes | Waiting on Martha](http://waitingonmartha.com/one-sheet-pan-salmon-fresh-green-beans-heirloom-cherry-tomatoes/)
 

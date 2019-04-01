@@ -1,5 +1,5 @@
 # Grilled Salmon with Avocado Greek Salsa and Orzo
-#recipe #food/cooking# #food #food/dinner #people/Cooking Classy#
+#recipe #food/cooking# #food/seafood# #food/dinner #people/Cooking Classy# #need to make# #2019/January#
 - - - -
 [Grilled Salmon with Avocado Greek Salsa and Orzo](https://www.cookingclassy.com/grilled-salmon-avocado-greek-salsa-orzo/)
 
@@ -29,3 +29,10 @@ Brush clean grill grates lightly with olive oil then place salmon on grill (clos
 In a medium mixing bowl toss together tomatoes, cucumber, red onions, kalamata olives, garlic, avocado, feta, lemon juice, 2 Tbsp olive oil, parsley and oregano. Season with salt to taste.
 
 Divide drained orzo among 4 plates then add a salmon fillet to each plate. Top each serving with plenty of the salsa, both over the salmon and the orzo. Serve immediately.
+
+## Nutrition
+### Servings: 4
+Calories: 677cal
+Fat: 44g
+Carbs: 37g
+Protein: 42g

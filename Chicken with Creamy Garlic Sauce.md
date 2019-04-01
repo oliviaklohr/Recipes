@@ -1,5 +1,5 @@
 # Chicken with Creamy Garlic Sauce
-#recipe #food/cooking #food #food/dinner #people/The Midnight Baker#
+#recipe #food/cooking #food/dinner #people/The Midnight Baker# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Chicken with Creamy Garlic Sauce - The Midnight Baker](https://bakeatmidnite.com/chicken-with-creamy-garlic-sauce/)
 

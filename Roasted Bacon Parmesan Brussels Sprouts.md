@@ -1,5 +1,5 @@
 # Roasted Bacon Parmesan Brussels Sprouts
-#recipe #food/cooking# #food #food/vegetables# #food/side dish# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/vegetables# #food/side dish# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Roasted Bacon Parmesan Brussels Sprouts](https://dennistheprescott.com/2015/11/17/roasted-bacon-parmesan-brussels-sprouts/)
 

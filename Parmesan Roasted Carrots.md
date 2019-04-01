@@ -1,5 +1,5 @@
 # Parmesan Roasted Carrots
-#recipe #food/cooking# #food #food/side dish# #people/Your Homebased Mom#
+#recipe #food/cooking# #food/vegetables #food/side dish# #people/Your Homebased Mom# #have made# #Dylan Approved# #2019/January#
 - - - -
 [Parmesan Roasted Carrots | Recipe from Your Homebased Mom](https://www.yourhomebasedmom.com/parmesan-roasted-carrots/)
 
@@ -26,3 +26,10 @@ Shake pan occasionally to rotate carrots.
 Top with cheese and roast for another 10 minutes or until carrots reach desired doneness.
 
 Top with parsley and serve immediately
+
+## Nutrition
+### Servings: 8
+Calories: 61cal
+Fat: 3g
+Carbs: 6g
+Protein: 1g

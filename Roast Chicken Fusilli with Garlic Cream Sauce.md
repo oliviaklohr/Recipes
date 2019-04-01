@@ -1,5 +1,5 @@
 # Roast Chicken Fusilli with Garlic Cream Sauce
-#recipe #food/cooking# #food #food/pasta# #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/pasta# #food/dinner# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Roast Chicken Fusilli with Garlic Cream Sauce](https://dennistheprescott.com/2015/09/21/roast-chicken-fusilli-with-garlic-cream-sauce/)
 

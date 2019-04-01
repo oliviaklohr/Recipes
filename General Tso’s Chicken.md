@@ -1,5 +1,5 @@
 # General Tso’s Chicken
-#recipe #food/cooking# #food #food/Chinese# #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/Chinese# #food/dinner# #people/Dennis The Prescott# #2018/December# #have made# #Dylan Approved# #needs nutrition info#
 - - - -
 [General Tso, I love your chicken. | Dennis The Prescott](https://dennistheprescott.com/2015/04/15/general-tso-i-love-your-chicken/)
 

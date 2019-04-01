@@ -1,5 +1,5 @@
 # Peanut Butter Cookie Lasagna
-#recipe #food/baking# #food #food/dessert# #people/Hugs and Cookies xoxo#
+#recipe #food/baking# #food/dessert# #people/Hugs and Cookies xoxo# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Peanut Butter Cookie Lasagna](https://hugsandcookiesxoxo.com/2015/02/peanut-butter-cookie-lasagna.html)
 

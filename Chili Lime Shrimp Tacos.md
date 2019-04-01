@@ -1,5 +1,5 @@
 # Chili Lime Shrimp Tacos
-#recipe #food/cooking# #food #food/dinner# #people/Fox and Briar#
+#recipe #food/cooking# #food/seafood #food/dinner# #people/Fox and Briar# #need to make# #2019/January#
 - - - -
 [Chili Lime Shrimp Tacos with Cabbage Slaw](https://www.foxandbriar.com/chili-lime-shrimp-tacos/)
 
@@ -28,3 +28,10 @@ Warm Tortillas in a skillet over low heat, flipping occasionally.
 Heat a large skillet over medium high heat. When hot, pour the shrimp in. Sear on one side for 1-2 minutes, flip and sear on the other side until pink all the way through and no longer opaque, 1-2 minutes. Remove from heat.
 
 To assemble tacos, layer two tortillas on top of each other. top with lime slaw, a few shrimp, and some avocado. Top with some salsa and a squeeze of fresh lime.
+
+## Nutrition
+### Servings: 8
+Calories: 129cal
+Fat: 5g
+Carbs: 14g
+Protein: 8g

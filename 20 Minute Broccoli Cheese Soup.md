@@ -1,6 +1,5 @@
 # 20 Minute Broccoli Cheese Soup
-#recipe #food/cooking #food #food/soup #people/Spend With Pennies#
-#food/30 Minutes or Less#
+#recipe #food/cooking #food/soup #food/30 Minutes or Less# #people/Spend With Pennies# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Broccoli Cheese Soup](https://www.spendwithpennies.com/20-minute-broccoli-cheese-soup/)
 

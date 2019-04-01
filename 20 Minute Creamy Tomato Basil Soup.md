@@ -1,5 +1,5 @@
 # 20 Minute Creamy Tomato Basil Soup
-#recipe #food/cooking #food #food/soup# #people/A Dash of Sanity# #food/30 Minutes or Less#
+#recipe #food/cooking #food/soup# #food/30 Minutes or Less# #people/A Dash of Sanity# #need to make# #2019/January#
 - - - -
 [20-MINUTE CREAMY TOMATO BASIL SOUP - A Dash of Sanity](https://www.dashofsanity.com/20-minute-creamy-tomato-basil-soup/)
 
@@ -25,3 +25,10 @@ Add in the whole tomatoes one at a time, breaking them up by squeezing them as y
 Once it has cooked for 10 minutes reduce heat to low and stir in heavy cream and chopped basil. Simmer for a few minute, then serve.
 
 Optional toppings like parmesan cheese, grilled cheese, toasted bread and chopped basil make great additions.
+
+## Nutrition
+### Servings: 6
+Calories: 71cal
+Fat: 6g
+Carbs: 2g
+Protein: 1g

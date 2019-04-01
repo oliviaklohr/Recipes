@@ -1,5 +1,5 @@
 # Tomato Spinach Chicken Spaghetti
-#recipe #food/baking# #food #food/dessert# #people/Hugs and Cookies xoxo#
+#recipe #food/baking# #food/dessert# #people/Hugs and Cookies xoxo# #need to make# #2019/January#
 - - - -
 [Tomato Spinach Chicken Spaghetti - Julia's Album](https://juliasalbum.com/tomato-spinach-chicken-spaghetti/)
 
@@ -25,3 +25,10 @@ Add chopped tomatoes, chopped fresh basil leaves, fresh spinach, and chopped gar
 Cook pasta according to package instructions, until al dente. Drain, and add cooked and drained pasta to the skillet with the chicken and vegetables. Reheat on low heat, mix everything well, add more seasonings (salt and pepper), if desired. Remove from heat.
 
 At this point, when the pasta and vegetables are off heat, you can add more high quality olive oil, which is really tasty. Or you can add more olive oil from the jar from the sun-dried tomatoes.
+
+## Nutrition
+### Servings: 4
+Calories: 532cal
+Fat: 27g
+Carbs: 51g
+Protein: 21g

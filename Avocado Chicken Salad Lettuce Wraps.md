@@ -1,6 +1,5 @@
 # Avocado Chicken Salad Lettuce Wraps
-#recipe #food/cooking# #food #people/Whole and Heavenly Oven#
-#food/lunch#
+#recipe #food/cooking# #food/lunch# #people/Whole and Heavenly Oven# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Avocado Chicken Salad Lettuce Wraps](http://wholeandheavenlyoven.com/2016/03/31/avocado-chicken-salad-lettuce-wraps/)
 

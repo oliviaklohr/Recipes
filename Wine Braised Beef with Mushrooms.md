@@ -1,5 +1,5 @@
 # Wine Braised Beef with Mushrooms
-#recipe #food/cooking# #food #food/dinner# #people/The Modern Proper#
+#recipe #food/cooking# #food/dinner# #people/The Modern Proper# #need to make# #2019/March#
 - - - -
 [Wine Braised Beef with Mushrooms | The Modern Proper](https://themodernproper.com/posts/wine-braised-beef-with-mushrooms)
 
@@ -27,3 +27,10 @@ Reduce heat to medium low and add onions, carrots and bay leaves. Saute until ca
 Place the meat back to the braiser in a single layer. The meat should sit just above liquid line. For a good braise, you don't want it fully immersed in the liquid. Tuck the thyme between pieces of meat and bring the dish to boil. Cover and place in preheated oven. Cook for 2 ½ -3 hours. Meat should gently fall apart with a fork when done.
 
 Serve in a shallow bowl over a bed of creamy mashed potatoes and along side some hearty vegetables.
+
+## Nutrition
+### Servings: 6
+Calories: 1247
+Fat: 29.9
+Carbs: 13.3
+Protein: 180g

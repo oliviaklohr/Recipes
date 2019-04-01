@@ -1,5 +1,5 @@
 # Creamy Cajun Linguine
-#recipe #food/cooking# #food #food/dinner #people/A Flavor Journal#
+#recipe #food/cooking# #food #food/dinner #people/A Flavor Journal# #have made# #Dylan Approved# #2019/January# #needs nutrition info#
 - - - -
 [creamy cajun linguine : a small batch recipe for two. | a flavor journal.](https://aflavorjournal.com/creamy-cajun-linguine-a-small-batch-recipe-for-two/)
 

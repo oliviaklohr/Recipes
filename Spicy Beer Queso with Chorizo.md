@@ -1,5 +1,5 @@
 # Spicy Beer Queso with Chorizo
-#recipe #food/cooking #food #food/side dish# #people/How Sweet Eats#
+#recipe #food/cooking #food/side dish# #food/dip# #people/How Sweet Eats# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Spicy Beer Queso with Chorizo and Black Beans](https://www.howsweeteats.com/2013/05/spicy-beer-queso-with-chorizo-and-black-beans/)
 

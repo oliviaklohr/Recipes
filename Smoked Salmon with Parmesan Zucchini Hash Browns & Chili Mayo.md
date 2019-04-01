@@ -1,5 +1,5 @@
 # Smoked Salmon with Parmesan Zucchini Hash Browns & Chili Mayo
-#recipe #food/cooking# #food  #food/dinner# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/dinner# #food/seafood# #people/Dennis The Prescott# #need to make# #needs nutrition info# #2018/December#
 - - - -
 [Smoked Salmon with Parmesan Zucchini Hash Browns & Chili Mayo](https://dennistheprescott.com/2015/09/13/smoked-salmon-with-parmesan-zucchini-hash-browns-chili-mayo/)
 

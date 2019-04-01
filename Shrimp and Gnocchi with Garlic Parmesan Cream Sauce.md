@@ -1,5 +1,5 @@
 # Shrimp and Gnocchi with Garlic Parmesan Cream Sauce
-#recipe #food/baking# #food #food/dessert# #people/Damn Delicious#
+#recipe #food/baking# #food/seafood #food/dessert# #people/Damn Delicious# #have made# #Dylan Approved# #2019/January#
 - - - -
 [Shrimp and Gnocchi with Garlic Parmesan Cream Sauce](https://damndelicious.net/2016/12/17/shrimp-and-gnocchi-with-garlic-parmesan-cream-sauce/)
 
@@ -30,5 +30,12 @@ To make the garlic parmesan cream sauce, melt butter in the skillet skillet ove
 
 Stir in shrimp and gnocchi, and gently toss to combine.Serve immediately, garnished with parsley, if desired.
 
-## **NOTES:**
+## NOTES:
 Half and half is equal parts of whole milk and cream. For 1 cup half and half, you can substitute 3/4 cup whole milk + 1/4 cup heavy cream or 2/3 cup skim or low-fat milk + 1/3 cup heavy cream.
+
+## Nutrition
+### Servings: 4
+Calories: 554cal
+Fat: 25g
+Carbs: 50g
+Protein: 33g

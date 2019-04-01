@@ -1,5 +1,5 @@
 # Baked Teriyaki Meatballs
-#recipe #food/cooking# #food #food/dinner# #people/The Modern Proper#
+#recipe #food/cooking# #food/dinner# #people/The Modern Proper# #have made# #Dylan Approved# #2019/March#
 - - - -
 [Baked Teriyaki Meatballs with Roasted Broccoli | The Modern Proper](https://themodernproper.com/posts/baked-teriyaki-meatballs-with-roasted-broccoli)
 
@@ -23,3 +23,10 @@ Bake in the oven for 20-25 minutes, rotating the pans half way through.
 Once the sauce has cooled and thickened a bit, pour it over the meatballs and roasted broccoli. Sprinkle with chopped cilantro and serve.
 
 ** Teriyaki sauce can be made 1 day ahead. Cover and chill. Meatballs can be formed 1 days ahead. Cover with plastic wrap on a rimmed baking sheet and chill.
+
+## Nutrition
+### Servings: 8 (4 meatballs per serving, with sauce)
+Calories: 393cal
+Fat: 7g
+Carbs: 42.9g
+Protein: 37.1g

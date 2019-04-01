@@ -1,5 +1,5 @@
 # Sheet Pan Shrimp Boil
-#recipe #food/cooking# #food #food/dinner #people/Damn Delicious# #one pan#
+#recipe #food/cooking# #food/seafood #food/dinner #people/Damn Delicious# #one pan# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Sheet Pan Shrimp Boil - Damn Delicious](https://damndelicious.net/2017/02/13/sheet-pan-shrimp-boil/)
 

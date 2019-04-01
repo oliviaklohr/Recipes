@@ -1,5 +1,5 @@
 # One Pan Healthy Sausage and Veggies
-#recipe #food/cooking# #food #food/dinner #people/Chelsea’s Messy Apron# #one pan#
+#recipe #one pan# #food/cooking# #food/dinner #people/Chelsea’s Messy Apron# #have made# #Dylan Approved# #2019/January#
 - - - -
 [One Pan Healthy Sausage and Veggies | Chelsea's Messy Apron](https://www.chelseasmessyapron.com/one-pan-healthy-sausage-and-veggies/)
 
@@ -33,3 +33,10 @@ Bake 15 minutes, remove from the oven and flip/stir all the veggies around. Retu
 If desired, sprinkle freshly grated Parmesan cheese over the veggies and sausage as soon as they come out of the oven.
 
 Enjoy with rice or quinoa and fresh parsley if desired.
+
+## Nutrition
+### Servings: 4
+Calories: 429cal
+Fat: 36.5g
+Carbs: 15.8g
+Protein: 12.9g

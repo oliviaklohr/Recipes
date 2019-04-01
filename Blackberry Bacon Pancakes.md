@@ -1,5 +1,5 @@
 # Blackberry Bacon Pancakes
-#recipe #food/cooking# #food/baking# #food #food/breakfast# #people/Dennis The Prescott# 
+#recipe #food/cooking# #food/baking# #food/breakfast# #people/Dennis The Prescott# #need to make# #2018/December# #needs nutrition info#
 - - - -
 [Blackberry Bacon Pancakes | Dennis The Prescott](https://dennistheprescott.com/2015/04/18/blackberry-bacon-pancakes/)
 

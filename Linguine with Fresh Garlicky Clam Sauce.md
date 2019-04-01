@@ -1,5 +1,5 @@
 # Linguine with Fresh Garlicky Clam Sauce
-#recipe #food/cooking #food #food/dinner# #food/pasta# #people/foodiecrush#
+#recipe #food/cooking #food/seafood #food/dinner# #food/pasta# #people/foodiecrush# #need to make# #needs nutrition info# #2019/January#
 - - - -
 [Linguine con Vongole (Linguine with Clam Sauce) | foodiecrush](https://www.foodiecrush.com/linguine-longole-fresh-clam-sauce/)
 

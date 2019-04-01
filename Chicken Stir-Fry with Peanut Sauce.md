@@ -1,5 +1,5 @@
 # Chicken Stir-Fry with Peanut Sauce
-#recipe #food/cooking #food #food/dinner #food/Chinese #people/Cooking Light#
+#recipe #food/cooking #food/dinner #food/Chinese #people/Cooking Light# #need to make# #2019/January# #needs nutrition info#
 - - - -
 [Chicken Stir-Fry with Peanut Sauce](https://www.myrecipes.com/recipe/chicken-stir-fry-1)
 
