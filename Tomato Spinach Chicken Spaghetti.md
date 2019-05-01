@@ -1,5 +1,5 @@
 # Tomato Spinach Chicken Spaghetti
-#recipe #food/baking# #food/dessert# #people/Hugs and Cookies xoxo# #need to make# #2019/January#
+#recipe #need to make#  #2019/January#
 - - - -
 [Tomato Spinach Chicken Spaghetti - Julia's Album](https://juliasalbum.com/tomato-spinach-chicken-spaghetti/)
 

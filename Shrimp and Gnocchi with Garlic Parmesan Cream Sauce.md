@@ -1,5 +1,5 @@
 # Shrimp and Gnocchi with Garlic Parmesan Cream Sauce
-#recipe #food/baking# #food/seafood #food/dessert# #people/Damn Delicious# #have made# #Dylan Approved# #2019/January#
+#recipe #food/seafood #people/Damn Delicious# #have made# #Dylan Approved# #2019/January#
 - - - -
 [Shrimp and Gnocchi with Garlic Parmesan Cream Sauce](https://damndelicious.net/2016/12/17/shrimp-and-gnocchi-with-garlic-parmesan-cream-sauce/)
 
