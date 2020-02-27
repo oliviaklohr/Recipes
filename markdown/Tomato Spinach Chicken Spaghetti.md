@@ -1,5 +1,5 @@
 # Tomato Spinach Chicken Spaghetti
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/vegetarian
 - - - -
 [Tomato Spinach Chicken Spaghetti - Julia's Album](https://juliasalbum.com/tomato-spinach-chicken-spaghetti/)
 

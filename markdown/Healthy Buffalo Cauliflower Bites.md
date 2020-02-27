@@ -1,5 +1,5 @@
 # Healthy Buffalo Cauliflower Bites
-#cooking/recipe #cooking/side dish# #2019/January#
+#cooking/recipe #cooking/side dish# #2019/January# #cooking/snack #cooking/appetizer #cooking/vegetarian #cooking/vegan
 - - - -
 [Healthy Buffalo Cauliflower Bites](https://www.galonamission.com/healthy-buffalo-cauliflower-bites/)
 

@@ -1,5 +1,5 @@
 # Chicken Gnocchi Soup
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Chicken Gnocchi Soup](http://www.365daysofcrockpot.com/slow-cooker-chicken-gnocchi-soup-kale-parmesan/)
 

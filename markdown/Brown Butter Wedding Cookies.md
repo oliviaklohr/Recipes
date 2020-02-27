@@ -1,5 +1,5 @@
 # Brown Butter Wedding Cookies
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert
 - - - -
 [Brown Butter Wedding Cookies](https://www.bonappetit.com/recipe/brown-butter-wedding-cookies)
 

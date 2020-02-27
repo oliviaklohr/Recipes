@@ -1,5 +1,5 @@
 # Loaded Baked Potato Frittata
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/dinner
 - - - -
 [Loaded Baked Frittata Recipe - NYT Cooking](https://cooking.nytimes.com/recipes/1019519-loaded-baked-frittata)
 

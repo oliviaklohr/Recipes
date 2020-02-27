@@ -1,5 +1,5 @@
 # Tortellini Soup with Italian Sausage and Kale
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner
 - - - -
 [Tortellini Soup with Italian Sausage and Kale | The Modern Proper](https://themodernproper.com/posts/tortellini-soup-with-italian-sausage-and-kale)
 

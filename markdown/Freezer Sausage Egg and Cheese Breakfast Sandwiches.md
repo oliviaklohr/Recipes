@@ -1,5 +1,5 @@
 # Freezer Sausage Egg and Cheese Breakfast Sandwiches
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/breakfast
 - - - -
 [Freezer Sausage, Egg, and Cheese Breakfast Sandwiches - Damn Delicious](https://damndelicious.net/2019/03/09/freezer-sausage-egg-and-cheese-breakfast-sandwiches/)
 

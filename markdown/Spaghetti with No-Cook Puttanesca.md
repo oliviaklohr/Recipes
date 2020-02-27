@@ -1,5 +1,5 @@
 # Spaghetti with No-Cook Puttanesca
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/vegetarian #cooking/dinner
 - - - -
 [Spaghetti with No-Cook Puttanesca](https://www.bonappetit.com/recipe/spaghetti-with-no-cook-puttanesca)
 

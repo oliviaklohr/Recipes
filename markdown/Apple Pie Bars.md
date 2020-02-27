@@ -1,5 +1,5 @@
 # Apple Pie Bars
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert
 - - - -
 [Apple Pie Bars](http://atreatsaffair.com/apple-pie-bars-recipe/)
 

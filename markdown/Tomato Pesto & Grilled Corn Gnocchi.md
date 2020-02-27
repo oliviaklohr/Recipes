@@ -1,5 +1,5 @@
 # Tomato Pesto & Grilled Corn Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian
 - - - -
 [Simple Summer Tomato Pesto + Grilled Corn Gnocchi. - Half Baked Harvest](https://www.halfbakedharvest.com/simple-summer-tomato-pesto-grilled-corn-gnocchi/)
 

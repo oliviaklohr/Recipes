@@ -1,5 +1,5 @@
 # Chicken Satay with Peanut Sauce
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/grill
 - - - -
 [Chicken Satay with Peanut Sauce - Damn Delicious](https://damndelicious.net/2019/06/07/chicken-satay-with-peanut-sauce/)
 

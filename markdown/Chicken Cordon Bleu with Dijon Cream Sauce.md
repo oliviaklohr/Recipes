@@ -1,5 +1,5 @@
 # Chicken Cordon Bleu with Dijon Cream Sauce
-#cooking/recipe #2019/Februrary#
+#cooking/recipe #2019/Februrary# #cooking/dinner
 - - - -
 [Chicken Cordon Bleu with Dijon Cream Sauce | Creme De La Crumb](https://www.lecremedelacrumb.com/chicken-cordon-bleu-dijon-cream-sauce/)
 

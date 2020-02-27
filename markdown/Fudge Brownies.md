@@ -1,5 +1,5 @@
 # Fudge Brownies
-#cooking/recipe  #2019/April#
+#cooking/recipe  #2019/April# #cooking/dessert
 - - - -
 [Fudge Brownies | Midwest Living](http://www.midwestliving.com/recipe/fudge-brownies/)
 

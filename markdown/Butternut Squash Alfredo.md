@@ -1,5 +1,5 @@
 # Butternut Squash Alfredo
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
 [Butternut Squash Alfredo Pasta - Damn Delicious](https://damndelicious.net/2017/10/13/butternut-squash-alfredo-pasta/)
 

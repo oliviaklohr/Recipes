@@ -1,5 +1,5 @@
 # Cinnamon Buttermilk Beignets
-#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/for large groups#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/for large groups# #cooking/breakfast #cooking/dessert
 - - - -
 [Easiest Cinnamon Buttermilk Beignets. - Half Baked Harvest](https://www.halfbakedharvest.com/easiest-cinnamon-buttermilk-beignets/)
 

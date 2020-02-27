@@ -1,5 +1,5 @@
 # Homemade Gnocchi in a Lemony Cream Sauce with Italian Sausage
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Homemade Gnocchi in a Lemony Cream Sauce with Italian Sausage | Bev Cooks](http://bevcooks.com/2019/10/homemade-gnocchi-in-a-lemony-cream-sauce-with-italian-sausage/)
 

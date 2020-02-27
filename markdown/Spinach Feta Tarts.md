@@ -1,5 +1,5 @@
 # Spinach Feta Tarts
-#cooking/recipe #cooking/side dish# #2019/January#
+#cooking/recipe #cooking/side dish# #2019/January# #cooking/vegetarian
 - - - -
 [Spinach Feta Tarts](https://parade.com/30289/dash/spinach-feta-tarts/)
 

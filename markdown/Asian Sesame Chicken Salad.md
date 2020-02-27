@@ -1,5 +1,5 @@
 # Asian Sesame Chicken Salad
-#cooking/recipe
+#cooking/recipe #cooking/dinner #cooking/vegetarian
 - - - -
 
 ## Ingredients

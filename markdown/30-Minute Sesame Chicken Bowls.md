@@ -1,5 +1,5 @@
 # 30-Minute Sesame Chicken Bowls
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
 [30-Minute Sesame Chicken Rice Bowls - The Girl on Bloor](https://thegirlonbloor.com/20-minute-sesame-chicken-rice-bowls/)
 

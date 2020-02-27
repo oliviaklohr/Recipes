@@ -1,5 +1,5 @@
 # Slow Cooker Red Wine Sunday Ragu Pasta
-#cooking/recipe #2019/November #cooking/slow cooker#
+#cooking/recipe #2019/November #cooking/slow cooker# #cooking/dinner
 - - - -
 [Slow Cooker Red Wine Sunday Ragu Pasta](https://www.halfbakedharvest.com/slow-cooker-red-wine-sunday-ragu-pasta/#bo-recipe)
 

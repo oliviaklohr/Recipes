@@ -1,5 +1,5 @@
 # Roasted Sheet Pan Brussels Sprouts
-#cooking/recipe #cooking/side dish# #2019/January#
+#cooking/recipe #cooking/side dish# #2019/January# #cooking/vegetarian #cooking/vegan
 - - - -
 [Roasted Brussels Sprouts | Barefoot Contessa](https://barefootcontessa.com/recipes/roasted-brussels-sprouts)
 

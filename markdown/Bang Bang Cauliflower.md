@@ -1,7 +1,7 @@
 # Bang Bang Cauliflower
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegan #cooking/vegetarian #cooking/dinner
 - - - -
-[Best Bang Bang Cauliflower Recipe - How to Make Bang Bang Cauliflower](https://www.delish.com/cooking/recipe-ideas/recipes/a57497/bang-bang-cauliflower-recipe/)
+[Best Bang Bang Cauliflower Recipe - How to Make Bang Bang Cauliflower](https://www.delish.com/cooking/recipe-ideas/recipes/a57497/bang-bang-cauliflower-recipe/) 
 
 ## Ingredients
 2 tbsp. sweet chili sauce

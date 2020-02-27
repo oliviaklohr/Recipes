@@ -1,5 +1,5 @@
 # Simple Roasted Red Pepper Pasta
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner #cooking/vegetarian #cooking/vegan
 - - - -
  [Simple Roasted Red Pepper Pasta](https://www.halfbakedharvest.com/simple-roasted-red-pepper-pasta/) 
 

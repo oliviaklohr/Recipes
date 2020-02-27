@@ -1,5 +1,5 @@
 # Apple and Gouda Grilled Cheese
-#cooking/recipe
+#cooking/recipe #cooking/dinner #cooking/snack
 - - - -
 [Apple Grilled Cheese](https://domesticsuperhero.com/apple-grilled-cheese/)
 

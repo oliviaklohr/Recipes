@@ -1,5 +1,5 @@
 # Potato Gnocchi with Mushrooms and Feta
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Potato Gnocchi with Mushrooms and Feta | COOKTORIA](https://cooktoria.com/gnocchi-with-mushrooms/)
 

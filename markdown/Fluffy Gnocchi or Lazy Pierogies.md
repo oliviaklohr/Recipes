@@ -1,5 +1,5 @@
 # Fluffy Gnocchi or Lazy Pierogies
-#cooking/recipe #2019/November 
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Fluffy Gnocchi or Lazy Pierogies - Let the Baking Begin](https://letthebakingbegin.com/fluffy-gnocchi-or-lazy-pierogies/)
 

@@ -1,5 +1,5 @@
 # Caramelized Teriyaki Salmon with Sesame Toasted Buckwheat
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Caramelized Teriyaki Salmon with Sesame Toasted Buckwheat. - Half Baked Harvest](https://www.halfbakedharvest.com/caramelized-teriyaki-salmon-sesame-toasted-buckwheat/)
 

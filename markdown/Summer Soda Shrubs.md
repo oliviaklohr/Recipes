@@ -1,5 +1,5 @@
 # Summer Soda Shrubs
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/drinks
 - - - -
 [Summer Sodas 3 Ways. - Half Baked Harvest](https://www.halfbakedharvest.com/summer-sodas-3-ways/)
 

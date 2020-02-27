@@ -1,5 +1,5 @@
 # Cinnamon Sugar Pretzel Bites
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert #cooking/snack 
 - - - -
 [Cinnamon Sugar Pretzel Bites](https://damndelicious.net/2017/12/30/cinnamon-sugar-pretzel-bites/) 
 

@@ -1,5 +1,5 @@
 # Pancetta Wrapped Pork Tenderloin
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Pancetta Wrapped Pork Tenderloin. - Half Baked Harvest](https://www.halfbakedharvest.com/pancetta-wrapped-pork-tenderloin/)
 

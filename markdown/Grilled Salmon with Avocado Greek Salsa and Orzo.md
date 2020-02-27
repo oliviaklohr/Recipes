@@ -1,5 +1,5 @@
 # Grilled Salmon with Avocado Greek Salsa and Orzo
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/grill
 - - - -
 [Grilled Salmon with Avocado Greek Salsa and Orzo](https://www.cookingclassy.com/grilled-salmon-avocado-greek-salsa-orzo/)
 
@@ -21,6 +21,7 @@ Salt and freshly ground black pepper
 
 ## Process
 Prepare orzo according to directions on package, drain (I recommend tossing with just a little olive oil). 
+
 Preheat a grill to medium-high heat to about 400 degrees. Meanwhile chop ingredients for salsa.
 
 Brush both sides of the salmon fillets with 1 Tbsp of the olive oil and season both sides with salt and pepper. 

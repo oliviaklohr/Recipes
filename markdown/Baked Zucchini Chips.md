@@ -1,5 +1,5 @@
 # Baked Zucchini Chips
-#cooking/recipe #2019/November #cooking/side dish#
+#cooking/recipe #2019/November #cooking/side dish# #cooking/snack #cooking/vegetarian #cooking/vegan
 - - - -
 [Baked Zucchini Chips - Damn Delicious](https://damndelicious.net/2018/01/15/baked-zucchini-chips/)
 

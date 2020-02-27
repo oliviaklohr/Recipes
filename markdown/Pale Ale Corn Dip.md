@@ -1,5 +1,5 @@
 # Pale Ale Corn Dip
-#cooking/recipe #cooking/slow cooker# #cooking/for large groups# #2019/March#
+#cooking/recipe #cooking/slow cooker# #cooking/for large groups# #2019/March# #cooking/appetizer #cooking/side dish#
 - - - -
 [Pale Ale Corn Dip](http://www.cookingandbeer.com/2014/08/slow-cooker-pale-ale-corn-dip/)
 

@@ -1,5 +1,5 @@
 # Hawaiian Chicken Noodle Bowls
-#cooking/recipe #cooking/slow cooker#
+#cooking/recipe #cooking/slow cooker# #cooking/dinner
 - - - -
 [Hawaiian Chicken Noodle Bowls](https://fitfoodiefinds.com/hawaiian-chicken-noodle-bowls/)
 

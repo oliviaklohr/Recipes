@@ -1,5 +1,5 @@
 # Pineapple BLT with Sweet Chili Butter + Sriracha Mayo
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
  [Pineapple BLT with Sweet Chili Butter + Sriracha Mayo](https://www.halfbakedharvest.com/pineapple-blt-with-sweet-chili-butter-sriracha-mayo/) 
 

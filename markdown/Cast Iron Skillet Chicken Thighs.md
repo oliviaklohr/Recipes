@@ -1,5 +1,5 @@
 # Cast Iron Skillet Chicken Thighs
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/one pan#
 - - - -
 [Cast Iron Skillet Chicken Thighs](https://www.bonappetit.com/recipe/perfect-pan-roasted-chicken-thighs)
 

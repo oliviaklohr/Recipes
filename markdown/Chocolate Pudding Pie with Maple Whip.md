@@ -1,5 +1,5 @@
 # Chocolate Pudding Pie with Maple Whip
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dessert
 - - - -
 [Chocolate Pudding Pie with Maple Whip](https://dennistheprescott.com/2018/10/14/chocolate-pudding-pie-with-maple-whip/)
 

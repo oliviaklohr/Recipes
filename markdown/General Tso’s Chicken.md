@@ -1,5 +1,5 @@
 # General Tso’s Chicken
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dinner
 - - - -
 [General Tso, I love your chicken. | Dennis The Prescott](https://dennistheprescott.com/2015/04/15/general-tso-i-love-your-chicken/)
 

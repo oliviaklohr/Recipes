@@ -1,5 +1,5 @@
 # Chicken Gyros & Tzatziki Sauce
-#cooking/recipe #cooking/30 Minutes or Less# #2019/Februrary#
+#cooking/recipe #cooking/30 Minutes or Less# #2019/Februrary# #cooking/dinner
 - - - -
 [Chicken Gyros & Tzatziki Sauce](https://www.lecremedelacrumb.com/easy-chicken-gyros-tzatziki-sauce/)
 

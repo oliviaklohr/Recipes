@@ -1,5 +1,5 @@
 # Pastry-Wrapped Baked Brie with Thyme Butter Roasted Plums
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/side dish# #cooking/appetizer
 - - - -
 [Pastry-Wrapped Baked Brie with Thyme Butter Roasted Plums](https://www.halfbakedharvest.com/pastry-wrapped-baked-brie-with-thyme-butter-roasted-plums/)
 

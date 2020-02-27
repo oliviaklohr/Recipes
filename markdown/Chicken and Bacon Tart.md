@@ -1,5 +1,5 @@
 # Chicken and Bacon Tart
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/appetizer #cooking/side dish#
 - - - -
 [Chicken & Bacon Tart Recipe | Taste of Home](https://www.tasteofhome.com/recipes/chicken-bacon-tart/)
 

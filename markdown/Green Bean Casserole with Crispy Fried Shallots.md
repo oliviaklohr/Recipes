@@ -1,5 +1,5 @@
 # Green Bean Casserole with Crispy Fried Shallots
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/side dish#
 - - - -
 [Green Bean Casserole with Crispy Fried Shallots - Damn Delicious](https://damndelicious.net/2018/11/09/green-bean-casserole-with-crispy-fried-shallots/)
 

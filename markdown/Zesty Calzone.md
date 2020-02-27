@@ -1,5 +1,5 @@
 # Zesty Calzone
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner #cooking/appetizer
 - - - -
 [Zesty Calzone Recipe | Taste of Home](https://www.tasteofhome.com/recipes/zesty-calzone/)
 

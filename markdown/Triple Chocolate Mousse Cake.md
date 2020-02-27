@@ -1,5 +1,5 @@
-# Vegan Triple Chocolate Mousse Cake
-#cooking/recipe #2019/November
+# Triple Chocolate Mousse Cake
+#cooking/recipe #2019/November #cooking/vegan #cooking/dessert
 - - - -
 [Vegan Triple Chocolate Mousse Cake. - Half Baked Harvest](https://www.halfbakedharvest.com/vegan-triple-chocolate-mousse-cake/)
 

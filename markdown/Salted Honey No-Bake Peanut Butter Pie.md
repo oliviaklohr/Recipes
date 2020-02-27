@@ -1,5 +1,5 @@
 # Salted Honey No-Bake Peanut Butter Pie
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert
 - - - -
 [Salted Honey No-Bake Peanut Butter Pie](https://stylesweet.com/blog/2019/10/15/salted-honey-no-bake-peanut-butter-pie)
 

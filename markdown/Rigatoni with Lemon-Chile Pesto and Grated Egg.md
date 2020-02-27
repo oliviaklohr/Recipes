@@ -1,5 +1,5 @@
 # Rigatoni with Lemon-Chile Pesto and Grated Egg
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegetarian #cooking/dinner
 - - - -
 [Rigatoni with Lemon-Chile Pesto and Grated Egg](https://www.bonappetit.com/recipe/rigatoni-lemon-chile-pesto-grated-egg)
 

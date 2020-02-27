@@ -1,5 +1,5 @@
 # Easy Pistachio Chocolate Baklava
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Easy Pistachio Chocolate Baklava. - Half Baked Harvest](https://www.halfbakedharvest.com/easy-baklava/)
 

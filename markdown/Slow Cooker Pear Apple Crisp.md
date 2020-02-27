@@ -1,5 +1,5 @@
 # Slow Cooker Pear Apple Crisp
-#cooking/recipe #2019/November #cooking/slow cooker#
+#cooking/recipe #2019/November #cooking/slow cooker# #cooking/dessert
 - - - -
 [Slow Cooker Pear Apple Crisp](https://damndelicious.net/2018/03/20/slow-cooker-apple-pear-crisp/) 
 

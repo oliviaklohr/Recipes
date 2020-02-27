@@ -1,5 +1,5 @@
 # Cheesy Bacon Holiday Crack
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/condiment #cooking/for large groups#
 - - - -
  [Cheesy Bacon Holiday Crack](https://www.halfbakedharvest.com/cheesy-bacon-holiday-crack/#bo-recipe) 
 

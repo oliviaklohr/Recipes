@@ -1,5 +1,5 @@
 # Butternut Squash and Brie Soup with Crispy Pancetta
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Butternut Squash and Brie Soup with Crispy Pancetta. - Half Baked Harvest](https://www.halfbakedharvest.com/butternut-squash-brie-soup-crispy-pancetta/#bo-recipe)
 

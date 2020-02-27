@@ -1,5 +1,5 @@
 # Pasta with Sausage and Arugula
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Pasta with Sausage and Arugula](https://www.bonappetit.com/recipe/pasta-with-sausage-and-arugula)
 

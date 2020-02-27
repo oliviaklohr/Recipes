@@ -1,5 +1,5 @@
 # Coconut Rice Pudding
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/vegan #cooking/vegetarian #cooking/dessert
 - - - -
 [Coconut Rice Pudding](http://www.thefoodiecorner.gr/en/slow-cooker-en/slow-cooker-vegan-coconut-rice-pudding-mango-pistachio-recipe/)
 

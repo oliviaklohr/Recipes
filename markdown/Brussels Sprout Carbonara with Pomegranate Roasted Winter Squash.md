@@ -1,5 +1,5 @@
 # Brussels Sprout Carbonara with Pomegranate Roasted Winter Squash
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Brussels Sprout Carbonara with Pomegranate Roasted Winter Squash. - Half Baked Harvest](https://www.halfbakedharvest.com/brussels-sprout-carbonara-with-pomegranate-roasted-winter-squash/)
 

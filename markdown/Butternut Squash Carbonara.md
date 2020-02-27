@@ -1,5 +1,5 @@
 # Butternut Squash Carbonara
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegetarian #cooking/dinner
 - - - -
 [Butternut Squash Carbonara - Damn Delicious](https://damndelicious.net/2018/10/28/butternut-squash-carbonara/)
 

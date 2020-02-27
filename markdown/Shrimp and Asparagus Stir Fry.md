@@ -1,5 +1,5 @@
 # Shrimp and Asparagus Stir Fry
-#cooking/recipe# #2019/November
+#cooking/recipe# #2019/November #cooking/dinner #cooking/30 Minutes or Less#
 - - - -
 [Shrimp and Asparagus Stir Fry Meal Prep - Damn Delicious](https://damndelicious.net/2017/06/13/shrimp-and-asparagus-stir-fry-meal-prep/)
 

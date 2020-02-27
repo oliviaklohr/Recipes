@@ -1,5 +1,5 @@
 # Spicy Beef Tortellini Soup
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Slow Cooker Spicy Beef Tortellini Soup - Slow Cooker Gourmet](http://slowcookergourmet.net/slow-cooker-spicy-beef-tortellini-soup/)
 

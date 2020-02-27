@@ -1,5 +1,5 @@
 # Cranberry Brie Pull Apart Bread
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/bread
 - - - -
 [Cranberry Brie Pull Apart Bread. - Half Baked Harvest](https://www.halfbakedharvest.com/cranberry-brie-pull-apart-bread/#bo-recipe)
 

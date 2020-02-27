@@ -1,5 +1,5 @@
 # White Pesto Pasta
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegetarian #cooking/dinner
 - - - -
 [White Pesto Pasta](https://www.bonappetit.com/recipe/white-pesto-pasta)
 

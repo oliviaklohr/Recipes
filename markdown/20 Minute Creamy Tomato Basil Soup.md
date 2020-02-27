@@ -1,5 +1,5 @@
 # 20 Minute Creamy Tomato Basil Soup
-#cooking/recipe #cooking/30 Minutes or Less# #2019/January#
+#cooking/recipe #cooking/30 Minutes or Less# #2019/January# #cooking/side dish#
 - - - -
 [20-MINUTE CREAMY TOMATO BASIL SOUP - A Dash of Sanity](https://www.dashofsanity.com/20-minute-creamy-tomato-basil-soup/)
 

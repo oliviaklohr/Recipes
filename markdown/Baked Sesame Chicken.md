@@ -1,5 +1,5 @@
 # Baked Sesame Chicken
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/dinner
 - - - -
 [Baked Sesame Chicken](https://www.lecremedelacrumb.com/baked-sesame-chicken/)
 

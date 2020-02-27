@@ -1,5 +1,5 @@
 # Honey Mustard Chicken Salad
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/lunch
 - - - -
 [Honey Mustard Chicken Salad - Damn Delicious](https://damndelicious.net/2019/04/01/honey-mustard-chicken-salad/)
 

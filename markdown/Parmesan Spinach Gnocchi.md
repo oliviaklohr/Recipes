@@ -1,5 +1,5 @@
 # Parmesan Spinach Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegetarian #cooking/dinner
 - - - -
 [Parmesan Spinach Gnocchi - Life As A Strawberry](https://www.lifeasastrawberry.com/parmesan-spinach-gnocchi/)
 

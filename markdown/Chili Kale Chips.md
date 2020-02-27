@@ -1,5 +1,5 @@
 # Chili Kale Chips
-#cooking/recipe #2020/January #cooking/side dish#
+#cooking/recipe #2020/January #cooking/side dish# #cooking/snack
 - - - -
 [Chili Kale Chips Recipe | Katie Lee | Food Network](https://www.foodnetwork.com/recipes/chili-kale-chips-recipe-2109934#/)
 

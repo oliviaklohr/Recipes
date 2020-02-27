@@ -1,5 +1,5 @@
 # Quick Ramen Noodle Stir Fry
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
 [Quick Ramen Noodle Stir Fry - Damn Delicious](https://damndelicious.net/2019/04/24/quick-ramen-noodle-stir-fry/)
 

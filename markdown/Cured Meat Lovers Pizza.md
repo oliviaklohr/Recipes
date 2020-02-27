@@ -1,5 +1,5 @@
 # Cured Meat Lovers Pizza
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dinner
 - - - -
 [Cured Meat Lovers Pizza | Dennis The Prescott](https://dennistheprescott.com/2015/08/03/cured-meat-lovers-pizza/)
 

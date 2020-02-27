@@ -1,5 +1,5 @@
 # Creamed Corn Pasta with Fried Herbs
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Creamed Corn Pasta with Fried Herbs. - Half Baked Harvest](https://www.halfbakedharvest.com/creamed-corn-pasta-with-fried-herbs/#bo-recipe)
 

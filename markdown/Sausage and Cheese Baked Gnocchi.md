@@ -1,5 +1,5 @@
 # Sausage and Cheese Baked Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Easy Sausage and Cheese Baked Gnocchi - Country Cleaver](http://www.countrycleaver.com/2016/02/easy-sausage-and-cheese-baked-gnocchi.html)
 

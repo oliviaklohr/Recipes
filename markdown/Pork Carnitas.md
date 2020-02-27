@@ -1,5 +1,5 @@
 # Pork Carnitas
-#cooking/recipe #cooking/slow cooker# #2019/January#
+#cooking/recipe #cooking/slow cooker# #2019/January# #cooking/dinner #cooking/for large groups#
 - - - -
 [Pork Carnitas](https://www.foodnetwork.com/recipes/melissa-darabian/pork-carnitas-recipe-1925103)
 

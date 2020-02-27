@@ -1,5 +1,5 @@
 # Creamy Chicken Alfredo Taco Pasta
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Creamy Chicken Alfredo Taco Pasta - Picky Palate -Easy Chicken Alfredo!](https://picky-palate.com/creamy-chicken-alfredo-taco-pasta/)
 

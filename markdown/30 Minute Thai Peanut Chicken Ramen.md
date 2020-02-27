@@ -1,5 +1,5 @@
 # 30 Minute Thai Peanut Chicken Ramen
-#cooking/recipe #cooking/30 Minutes or Less# #2019/January#
+#cooking/recipe #cooking/30 Minutes or Less# #2019/January# #cooking/dinner
 - - - -
 [30 Minute Thai Peanut Chicken Ramen. - Half Baked Harvest](https://www.halfbakedharvest.com/20-minute-thai-peanut-chicken-ramen/)
 

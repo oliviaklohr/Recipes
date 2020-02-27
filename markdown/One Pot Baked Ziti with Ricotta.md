@@ -1,5 +1,5 @@
 # One Pot Baked Ziti with Ricotta
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/vegetarian
 - - - -
 [One Pot Baked Ziti with Ricotta | Kitchen Nostalgia](https://www.kitchennostalgia.com/pasta/one-pot-baked-ziti-with-ricotta.html)
 

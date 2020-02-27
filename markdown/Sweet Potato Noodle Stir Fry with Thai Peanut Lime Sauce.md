@@ -1,5 +1,5 @@
 # Sweet Potato Noodle Stir Fry with Thai Peanut Lime Sauce
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Sweet Potato Noodle Stir Fry with Thai Peanut Lime Sauce | TEM](https://www.theendlessmeal.com/sweet-potato-noodle-stir-fry/)
 

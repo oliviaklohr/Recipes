@@ -1,5 +1,5 @@
 # Herbed Garlic Butter Naan
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/bread #cooking/side dish#
 - - - -
 [Herbed Garlic Butter Naan. - Half Baked Harvest](https://www.halfbakedharvest.com/herbed-garlic-butter-naan/)
 

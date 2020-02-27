@@ -1,5 +1,5 @@
 # Sausage Ricotta Pepperoni Pizza
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
  [Sausage Ricotta Pepperoni Pizza](https://damndelicious.net/2016/11/29/sausage-ricotta-pepperoni-pizza/) 
 

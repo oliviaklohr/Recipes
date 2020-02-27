@@ -1,5 +1,5 @@
 # Strawberry Basil Jam
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/condiment
 - - - -
 [Slow Cooker Strawberry Basil Jam | Life As A Strawberry](http://www.lifeasastrawberry.com/slow-cooker-strawberry-basil-jam/)
 

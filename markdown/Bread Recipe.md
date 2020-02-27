@@ -1,5 +1,5 @@
 # Bread Recipe
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/bread
 - - - -
 ## Ingredients
 500 grams unbleached flour

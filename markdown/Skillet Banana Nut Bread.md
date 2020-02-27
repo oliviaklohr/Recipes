@@ -1,5 +1,5 @@
 # Skillet Banana Nut Bread
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/dessert
 - - - -
 [Skillet Banana Nut Bread](http://www.themeaningofpie.com/2012/04/skillet-banana-nut-bread/)
 

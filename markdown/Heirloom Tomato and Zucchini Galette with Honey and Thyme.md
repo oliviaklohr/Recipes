@@ -1,5 +1,5 @@
 # Heirloom Tomato and Zucchini Galette with Honey and Thyme
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner #cooking/vegetarian #cooking/vegan
 - - - -
 [Heirloom Tomato and Zucchini Galette with Honey + Thyme. - Half Baked Harvest](https://www.halfbakedharvest.com/heirloom-tomato-zucchini-galette-honey-thyme/)
 

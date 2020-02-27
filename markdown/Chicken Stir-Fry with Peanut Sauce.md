@@ -1,5 +1,5 @@
 # Chicken Stir-Fry with Peanut Sauce
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/30 Minutes or Less#
 - - - -
 [Chicken Stir-Fry with Peanut Sauce](https://www.myrecipes.com/recipe/chicken-stir-fry-1)
 

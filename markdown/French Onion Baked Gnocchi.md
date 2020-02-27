@@ -1,5 +1,5 @@
 # French Onion Baked Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/vegetarian #cooking/dinner
 - - - -
 [French Onion Baked Gnocchi](http://www.sweetloveandginger.com/french-onion-baked-gnocchi/)
 

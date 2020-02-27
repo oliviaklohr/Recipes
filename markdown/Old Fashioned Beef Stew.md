@@ -1,5 +1,5 @@
 # Old Fashioned Beef Stew
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Easy Old Fashioned Beef Stew Recipe Made in the Slow Cooker](https://lifemadesweeter.com/slow-cooker-homemade-beef-stew/)
 

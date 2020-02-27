@@ -1,5 +1,5 @@
 # Tuscan Butter Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Best Tuscan Butter Gnocchi Recipe - How to Make Tuscan Butter Gnocchi](https://www.delish.com/cooking/recipe-ideas/a22845363/tuscan-butter-gnocchi-recipe/)
 

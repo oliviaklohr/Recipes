@@ -1,5 +1,5 @@
 # 30-Minute Kung Pao Shrimp
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
 [30-Minute Kung Pao Shrimp | The Girl on Bloor](https://thegirlonbloor.com/30-minute-kung-pao-shrimp/)
 

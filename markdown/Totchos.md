@@ -1,5 +1,5 @@
 # Totchos
-#cooking/recipe #2019/November #cooking/for large groups#
+#cooking/recipe #2019/November #cooking/for large groups# #cooking/appetizer
 - - - -
 [Beef Totchos Recipe — How To Make Beef Totchos](https://www.delish.com/cooking/recipe-ideas/a22595612/best-totchos-recipe/)
 

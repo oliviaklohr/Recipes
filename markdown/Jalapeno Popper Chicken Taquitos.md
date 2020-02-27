@@ -1,5 +1,5 @@
 # Jalapeno Popper Chicken Taquitos
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/appetizer #cooking/side dish#
 - - - -
 [Slow Cooker Jalapeño Popper Chicken Taquitos | Creme De La Crumb](http://lecremedelacrumb.com/2014/09/slow-cooker-jalapeno-popper-chicken-taquitos.html)
 

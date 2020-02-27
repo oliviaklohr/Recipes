@@ -1,5 +1,5 @@
 # Spaghetti Aglio, Olio, e Peperoncino
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/side dish# #cooking/vegetarian
 - - - -
 [Spaghetti With Garlic, Olive Oil, and Chili Flakes | POPSUGAR Food](https://www.popsugar.com/food/Spaghetti-Garlic-Olive-Oil-Chili-Flakes-21398824)
 

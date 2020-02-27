@@ -1,5 +1,5 @@
 # Brie Stuffed Crispy Baby Potatoes
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/side dish# #cooking/vegetarian
 - - - -
  [Brie Stuffed Crispy Baby Potatoes](https://www.halfbakedharvest.com/brie-stuffed-crispy-baby-potatoes/) 
 

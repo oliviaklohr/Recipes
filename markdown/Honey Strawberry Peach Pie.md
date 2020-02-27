@@ -1,5 +1,5 @@
 # Honey Strawberry Peach Pie
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
  [Honey Strawberry Peach Pie](https://www.halfbakedharvest.com/honey-strawberry-peach-pie/) 
 

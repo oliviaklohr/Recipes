@@ -1,5 +1,5 @@
 # One Pot Creamy French Onion Pasta Bake
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/one pan# #cooking/dinner
 - - - -
  [One Pot Creamy French Onion Pasta Bake](https://www.halfbakedharvest.com/one-pot-creamy-french-onion-pasta-bake/) 
 

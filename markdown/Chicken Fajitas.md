@@ -1,5 +1,5 @@
 # Chicken Fajitas
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Slow Cooker Chicken Fajitas](http://www.cookingclassy.com/2015/01/slow-cooker-chicken-fajitas/)
 

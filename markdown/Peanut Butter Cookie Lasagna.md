@@ -1,5 +1,5 @@
 # Peanut Butter Cookie Lasagna
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dessert
 - - - -
 [Peanut Butter Cookie Lasagna](https://hugsandcookiesxoxo.com/2015/02/peanut-butter-cookie-lasagna.html)
 

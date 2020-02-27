@@ -1,5 +1,5 @@
 # Pumpkin Chai Snickerdoodles
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Pumpkin Chai Snickerdoodles. - Half Baked Harvest](https://www.halfbakedharvest.com/pumpkin-chai-snickerdoodles/)
 

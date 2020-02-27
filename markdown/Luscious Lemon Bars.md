@@ -1,5 +1,5 @@
 # Luscious Lemon Bars
-#cooking/recipe #2019/April#
+#cooking/recipe #2019/April# #cooking/dessert
 - - - -
  [Lemon Bars](http://www.midwestliving.com/recipe/cookies/luscious-lemon-bars) 
 

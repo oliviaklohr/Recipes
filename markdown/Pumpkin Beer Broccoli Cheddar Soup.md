@@ -1,5 +1,5 @@
 # Pumpkin Beer Broccoli Cheddar Soup
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/side dish# #cooking/dinner #cooking/vegetarian
 - - - -
 [Pumpkin Beer Broccoli Cheddar Soup + Video - Half Baked Harvest](https://www.halfbakedharvest.com/pumpkin-beer-broccoli-cheddar-soup/)
 

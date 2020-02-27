@@ -1,5 +1,5 @@
 # Chocolate Chia Seed Pudding
-#cooking/recipe
+#cooking/recipe #cooking/snack #cooking/dessert #cooking/vegan #cooking/vegetarian
 - - - -
 [Overnight Chocolate Chia Seed Pudding | Minimalist Baker Recipes](https://minimalistbaker.com/overnight-chocolate-chia-seed-pudding/)
 

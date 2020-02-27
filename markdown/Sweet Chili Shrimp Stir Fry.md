@@ -1,5 +1,5 @@
 # Sweet Chili Shrimp Stir Fry
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/30 Minutes or Less#
 - - - -
 [Easy Sweet Chili Shrimp Stir Fry | Sweet Peas and Saffron](https://sweetpeasandsaffron.com/easy-sweet-chili-shrimp-stir-fry/)
 

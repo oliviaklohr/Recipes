@@ -1,5 +1,5 @@
 # Cheesy Ground Beef Empanadas
-#cooking/recipe #2020/January 
+#cooking/recipe #2020/January #cooking/dinner
 - - - -
 [Cheesy Ground Beef Empanadas - Great Grub, Delicious Treats](https://www.greatgrubdelicioustreats.com/cheesy-ground-beef-empanadas/)
 

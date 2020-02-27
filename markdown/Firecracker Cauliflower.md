@@ -1,5 +1,5 @@
 # Firecracker Cauliflower
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian #cooking/vegan
 - - - -
 [Firecracker Cauliflower](https://kirbiecravings.com/firecracker-cauliflower/)
 

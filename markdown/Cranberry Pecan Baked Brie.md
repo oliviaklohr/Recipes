@@ -1,12 +1,13 @@
 # Cranberry Pecan Baked Brie
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert
 - - - -
 [Cranberry Pecan Baked Brie - Damn Delicious](https://damndelicious.net/2015/11/22/cranberry-pecan-baked-brie/)
 
 ## Ingredients
 1 (8-ounce) wheel brie cheese, rind trimmed
 2 tablespoons brown sugar, packed
-FOR THE MAPLE HONEY DRIZZLE
+
+### FOR THE MAPLE HONEY DRIZZLE
 1/4 cup brown sugar, packed
 2 tablespoons honey
 2 tablespoons maple syrup

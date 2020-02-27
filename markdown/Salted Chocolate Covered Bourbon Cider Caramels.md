@@ -1,5 +1,5 @@
 # Salted Chocolate Covered Bourbon Cider Caramels
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Salted Chocolate Covered Bourbon Cider Caramels. - Half Baked Harvest](https://www.halfbakedharvest.com/salted-chocolate-covered-bourbon-cider-caramels/)
 

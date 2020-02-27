@@ -1,5 +1,5 @@
 # Sesame Ginger Carrot Noodle Stir Fry
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/side dish# #cooking/vegetarian #cooking/vegan
 - - - -
 [Sesame Ginger Carrot Noodle Stir Fry with Crispy Tofu | TEM](https://www.theendlessmeal.com/sesame-ginger-carrot-noodle-stir-fry/)
 

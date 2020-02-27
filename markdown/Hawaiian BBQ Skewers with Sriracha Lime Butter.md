@@ -1,5 +1,5 @@
 # Hawaiian BBQ Skewers with Sriracha Lime Butter
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner #cooking/grill
 - - - -
  [Hawaiian BBQ Skewers with Sriracha Lime Butter](https://www.halfbakedharvest.com/hawaiian-bbq-skewers-sriracha-lime-butter/) 
 

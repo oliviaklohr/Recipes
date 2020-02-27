@@ -1,5 +1,5 @@
 # Mayo-Marinated Chicken With Chimichurri
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Mayo-Marinated Chicken With Chimicurri](https://cooking.nytimes.com/recipes/1020543-mayo-marinated-chicken-with-chimichurri)
 

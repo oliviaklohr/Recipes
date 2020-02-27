@@ -1,5 +1,5 @@
 # Green Grape Salad
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dessert #cooking/snack
 - - - -
 [Green Grape Salad Recipe](https://www.allrecipes.com/recipe/24378/green-grape-salad/)
 

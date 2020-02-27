@@ -1,5 +1,5 @@
 # Spaghetti Sauce
-#cooking/recipe #cooking/for large groups# #2019/January#
+#cooking/recipe #cooking/for large groups# #2019/January# #cooking/dinner
 - - - -
 ## Ingredients
 1 tbsp. olive oil

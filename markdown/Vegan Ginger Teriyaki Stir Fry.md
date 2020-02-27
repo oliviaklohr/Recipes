@@ -1,5 +1,5 @@
 # Vegan Ginger Teriyaki Stir Fry
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian #cooking/vegan
 - - - -
 [Vegan Ginger Teriyaki Stir Fry (Meal Prep) | Sweet Peas and Saffron](https://sweetpeasandsaffron.com/vegan-ginger-teriyaki-stir-fry-meal-prep/)
 

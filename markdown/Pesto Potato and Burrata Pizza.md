@@ -1,5 +1,5 @@
 # Pesto Potato and Burrata Pizza
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Pesto Potato and Burrata Pizza. - Half Baked Harvest](https://www.halfbakedharvest.com/pesto-potato-and-burrata-pizza/)
 

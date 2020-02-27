@@ -1,5 +1,5 @@
 # Garlic Bread Pizza Sandwiches
-#cooking/recipe #2019/November 
+#cooking/recipe #2019/November #cooking/dinner #cooking/30 Minutes or Less#
 - - - -
 [Garlic Bread Pizza Sandwiches Recipe | Taste of Home](https://www.tasteofhome.com/recipes/garlic-bread-pizza-sandwiches/)
 

@@ -1,5 +1,5 @@
 # Crispy Pork Ramen with Curry Roasted Acorn Squash
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Crockpot Crispy Pork Ramen](http://www.halfbakedharvest.com/crockpot-crispy-caramelized-pork-ramen-noodle-soup-wcurry-roasted-acorn-squash/)
 

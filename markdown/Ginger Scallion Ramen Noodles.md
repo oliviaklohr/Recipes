@@ -1,5 +1,5 @@
 # Ginger Scallion Ramen Noodles
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian
 - - - -
 [Ginger Scallion Ramen Noodles](https://www.bonappetit.com/recipe/ginger-scallion-ramen-noodles)
 

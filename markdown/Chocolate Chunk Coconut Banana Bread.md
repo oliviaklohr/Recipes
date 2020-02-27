@@ -1,5 +1,5 @@
 # Chocolate Chunk Coconut Banana Bread
-#cooking/recipe #2019/December #cooking/bread
+#cooking/recipe #2019/December #cooking/bread #cooking/dessert
 - - - -
 [Link](https://www.halfbakedharvest.com/chocolate-chunk-coconut-banana-bread/)
 

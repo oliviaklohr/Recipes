@@ -1,5 +1,5 @@
 # Cardamom Cognac Apple Cake
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Cardamom Cognac Apple Cake. - Half Baked Harvest](https://www.halfbakedharvest.com/cardamom-cognac-apple-cake/#bo-recipe)
 

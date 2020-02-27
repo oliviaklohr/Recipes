@@ -1,5 +1,5 @@
 # Chimichurri
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/condiment
 - - - -
 [Chimichurri Recipe - NYT Cooking](https://cooking.nytimes.com/recipes/1020544-chimichurri)
 

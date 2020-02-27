@@ -1,5 +1,5 @@
 # Crockpot Three Cheese Mashed Potatoes
-#cooking/recipe #2019/July# #cooking/slow cooker#
+#cooking/recipe #2019/July# #cooking/slow cooker# #cooking/side dish#
 - - - -
 [Crockpot Three Cheese Mashed Potatoes. - Half Baked Harvest](https://www.halfbakedharvest.com/crockpot-three-cheese-mashed-potatoes/)
 

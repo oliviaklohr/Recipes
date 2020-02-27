@@ -1,5 +1,5 @@
 # Cheesy Spinach and Artichoke Pinwheels
-#cooking/recipe #2019/November #cooking/for large groups#
+#cooking/recipe #2019/November #cooking/for large groups# #cooking/appetizer
 - - - -
 [Cheesy Spinach and Artichoke Pinwheels - Damn Delicious](https://damndelicious.net/2017/09/27/cheesy-spinach-and-artichoke-pinwheels/)
 

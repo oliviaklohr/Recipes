@@ -1,5 +1,5 @@
 # Grilled Chili Honey Lime Chicken and Sweet Potatoes with Avocado Salsa
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner #cooking/grill
 - - - -
 [Grilled Chili Honey Lime Chicken and Sweet Potatoes with Avocado Salsa. - Half Baked Harvest](https://www.halfbakedharvest.com/grilled-honey-chicken/)
 

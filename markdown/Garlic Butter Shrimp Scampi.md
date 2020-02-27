@@ -1,5 +1,5 @@
 # Garlic Butter Shrimp Scampi
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner #cooking/side dish#
 - - - -
 [Garlic Butter Shrimp Scampi - Damn Delicious](https://damndelicious.net/2019/02/04/garlic-butter-shrimp-scampi/)
 

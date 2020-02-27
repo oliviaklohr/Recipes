@@ -1,5 +1,5 @@
 # Sweet and Sour Chicken
-#cooking/recipe #cooking/30 Minutes or Less# #2019/March# 
+#cooking/recipe #cooking/30 Minutes or Less# #2019/March# #cooking/dinner
 - - - -
 [Sweet and Sour Chicken](https://www.lecremedelacrumb.com/healthy-sweet-sour-chicken/)
 

@@ -1,5 +1,5 @@
 # Creamy Parmesan Orzo with Chicken and Asparagus
-#cooking/recipe #cooking/30 Minutes or Less# #2019/January#
+#cooking/recipe #cooking/30 Minutes or Less# #2019/January# #cooking/dinner
 - - - -
 [Creamy Parmesan Orzo with Chicken and Asparagus - Craving Home Cooked](https://cravinghomecooked.com/creamy-parmesan-orzo-with-chicken-and-asparagus/)
 

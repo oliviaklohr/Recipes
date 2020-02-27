@@ -1,5 +1,5 @@
 # Cheese Tortellini in Garlic Butter Sauce
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/vegetarian
 - - - -
 [Cheese Tortellini in Garlic Butter Sauce](https://www.culinaryhill.com/cheese-tortellini-in-garlic-basil-sauce/)
 

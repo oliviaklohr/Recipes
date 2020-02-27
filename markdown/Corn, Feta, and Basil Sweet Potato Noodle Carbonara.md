@@ -1,5 +1,5 @@
 # Corn, Feta, and Basil Sweet Potato Noodle Carbonara
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
  [Corn, Feta, and Basil Sweet Potato Noodle Carbonara](https://www.halfbakedharvest.com/corn-feta-basil-sweet-potato-noodle-carbonara/) 
 

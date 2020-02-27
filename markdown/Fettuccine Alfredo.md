@@ -1,5 +1,5 @@
 # Fettuccine Alfredo
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/dinner
 - - - -
 [Fettuccine Alfredo Sauce](https://www.foodnetwork.com/recipes/ree-drummond/fettuccine-alfredo-2109163)
 

@@ -1,5 +1,5 @@
 # Chocolate Cherry Bailey’s Cake
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dessert
 - - - -
 [Chocolate Cherry Bailey’s Cake | Dennis The Prescott](https://dennistheprescott.com/2015/06/16/chocolate-cherry-baileys-cake/)
 

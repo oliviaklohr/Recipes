@@ -1,5 +1,5 @@
 # Corn and Jalapeno Dip
-#cooking/recipe #cooking/slow cooker# #cooking/for large groups# #2019/March#
+#cooking/recipe #cooking/slow cooker# #cooking/for large groups# #2019/March# #cooking/appetizer #cooking/side dish#
 - - - -
 [Slow Cooker Corn and Jalapeno Dip - Damn Delicious](http://damndelicious.net/2014/02/28/slow-cooker-corn-jalapeno-dip/)
 

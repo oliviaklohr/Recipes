@@ -1,5 +1,5 @@
 # Skillet Cheddar-Bacon Beer Bread
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/bread
 - - - -
 [Skillet Cheddar-Bacon Beer Bread - Onion Rings & Things](https://www.onionringsandthings.com/cheddar-bacon-beer-bread/)
 

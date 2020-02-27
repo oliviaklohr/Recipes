@@ -1,5 +1,5 @@
 # Szechuan Chicken Stir Fry
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
 [Szechuan Chicken Stir Fry](https://www.cookinglight.com/recipes/szechuan-chicken-stir-fry)
 

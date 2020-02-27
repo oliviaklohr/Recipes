@@ -1,5 +1,5 @@
 # Mini Hasselback Potatoes
-#cooking/recipe #2019/November #cooking/side dish#
+#cooking/recipe #2019/November #cooking/side dish# #cooking/vegetarian
 - - - -
 [Mini Hasselback Potatoes](https://damndelicious.net/2019/02/19/mini-hasselback-potatoes/) 
 

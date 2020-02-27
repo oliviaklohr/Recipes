@@ -1,5 +1,5 @@
 # Loaded Baked Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Loaded Baked Gnocchi Recipe](https://www.twopeasandtheirpod.com/loaded-baked-gnocchi/)
 

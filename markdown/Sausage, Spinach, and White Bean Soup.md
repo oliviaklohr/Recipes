@@ -1,5 +1,5 @@
 # Sausage, Spinach, and White Bean Soup
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Sausage, Spinach, and White Bean Soup](http://damndelicious.net/2015/03/21/slow-cooker-sausage-spinach-and-white-bean-soup/)
 

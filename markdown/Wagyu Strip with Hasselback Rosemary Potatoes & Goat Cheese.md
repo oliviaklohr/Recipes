@@ -1,5 +1,5 @@
 # Wagyu Strip with Hasselback Rosemary Potatoes & Goat Cheese
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dinner #cooking/grill
 - - - -
 [Wagyu Strip with Hasselback Rosemary Potatoes & Goat Cheese](https://dennistheprescott.com/2017/10/23/wagyu-striploin-with-hasselback-rosemary-sweet-potatoes-goat-cheese/)
 

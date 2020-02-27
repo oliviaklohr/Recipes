@@ -1,5 +1,5 @@
 # Chili Lime Shrimp Tacos
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner
 - - - -
 [Chili Lime Shrimp Tacos with Cabbage Slaw](https://www.foxandbriar.com/chili-lime-shrimp-tacos/)
 

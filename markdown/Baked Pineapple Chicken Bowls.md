@@ -1,5 +1,5 @@
 # Baked Pineapple Chicken Bowls
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Baked Pineapple Chicken Bowls - Damn Delicious](https://damndelicious.net/2016/08/01/baked-pineapple-chicken-bowls/)
 

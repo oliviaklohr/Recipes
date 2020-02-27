@@ -1,5 +1,5 @@
 # Blackberry Thyme Margarita
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/drinks
 - - - -
 [Blackberry Thyme Margarita. - Half Baked Harvest](https://www.halfbakedharvest.com/blackberry-thyme-margarita/)
 

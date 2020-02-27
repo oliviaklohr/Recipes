@@ -1,5 +1,5 @@
 # Zuppa Toscana
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Zuppa Toscana](http://www.thechunkychef.com/slow-cooker-zuppa-toscana/)
 

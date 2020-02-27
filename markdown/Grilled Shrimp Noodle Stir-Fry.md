@@ -1,5 +1,5 @@
 # Grilled Shrimp Noodle Stir-Fry
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dinner
 - - - -
 [Grilled Shrimp Noodle Stir-fry | Dennis The Prescott](https://dennistheprescott.com/2015/06/08/grilled-shrimp-noodle-stir-fry/)
 

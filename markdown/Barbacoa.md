@@ -1,5 +1,5 @@
 # Barbacoa
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Barbacoa Recipe | Gimme Some Oven](http://www.gimmesomeoven.com/barbacoa-recipe/)
 

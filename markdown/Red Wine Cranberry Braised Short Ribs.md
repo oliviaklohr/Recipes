@@ -1,5 +1,5 @@
 # Red Wine Cranberry Braised Short Ribs
-#cooking/recipe #2019/November #cooking/slow cooker#
+#cooking/recipe #2019/November #cooking/slow cooker# #cooking/dinner
 - - - -
 [Red Wine Cranberry Braised Short Ribs. - Half Baked Harvest](https://www.halfbakedharvest.com/red-wine-cranberry-braised-short-ribs/)
 

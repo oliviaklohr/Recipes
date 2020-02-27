@@ -1,5 +1,5 @@
 # One-Pot Butternut Squash Pasta with White Beans and Kale
-#cooking/recipe #2019/November# #cooking/one pan# #cooking/dinner
+#cooking/recipe #2019/November# #cooking/one pan# #cooking/dinner #cooking/vegetarian
 - - - -
 [Link](https://www.thekitchn.com/one-pot-butternut-squash-pasta-22948753)
 

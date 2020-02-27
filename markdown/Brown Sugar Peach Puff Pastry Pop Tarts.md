@@ -1,5 +1,5 @@
 # Brown Sugar Peach Puff Pastry Pop Tarts
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Brown Sugar Peach Puff Pastry Pop Tarts. - Half Baked Harvest](https://www.halfbakedharvest.com/brown-sugar-peach-puff-pastry-pop-tarts/)
 

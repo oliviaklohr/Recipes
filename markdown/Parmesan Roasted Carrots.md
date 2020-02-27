@@ -1,5 +1,5 @@
 # Parmesan Roasted Carrots
-#cooking/recipe #cooking/side dish# #2019/January#
+#cooking/recipe #cooking/side dish# #2019/January# #cooking/vegetarian
 - - - -
 [Parmesan Roasted Carrots | Recipe from Your Homebased Mom](https://www.yourhomebasedmom.com/parmesan-roasted-carrots/)
 

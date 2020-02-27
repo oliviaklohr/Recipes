@@ -1,5 +1,5 @@
 # Jamaican Jerk Fish Tacos with Plantain Fried Rice and Pineapple Salsa
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Jamaican Jerk Fish Tacos with Plantain Fried Rice and Pineapple Salsa. - Half Baked Harvest](https://www.halfbakedharvest.com/jamaican-jerk-fish-tacos-with-plantain-fried-rice-and-pineapple-salsa/)
 

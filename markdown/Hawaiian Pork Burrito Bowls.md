@@ -1,5 +1,5 @@
 # Hawaiian Pork Burrito Bowls
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Slow Cooker Hawaiian Pork Burrito Bowls](http://withsaltandwit.com/pork-burrito-bowls/)
 

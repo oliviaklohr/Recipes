@@ -1,5 +1,5 @@
 # Quick + Simple Pasta Risotto with Herbed Roasted Chickpeas
-#cooking/recipe #cooking #cooking#  #2019/July#
+#cooking/recipe  #2019/July# #cooking/dinner
 - - - -
  [Quick + Simple Pasta Risotto with Herbed Roasted Chickpeas](https://www.halfbakedharvest.com/quick-simple-pasta-risotto-with-herbed-roasted-chickpeas/) 
 

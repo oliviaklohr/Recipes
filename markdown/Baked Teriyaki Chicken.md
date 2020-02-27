@@ -1,5 +1,5 @@
 # Baked Teriyaki Chicken
-#cooking/recipe #cooking/30 Minutes or Less# #2019/January#
+#cooking/recipe #cooking/30 Minutes or Less# #2019/January# #cooking/dinner
 - - - -
 [Best Ever Baked Teriyaki Chicken | Creme De La Crumb](https://www.lecremedelacrumb.com/best-ever-baked-teriyaki-chicken/)
 

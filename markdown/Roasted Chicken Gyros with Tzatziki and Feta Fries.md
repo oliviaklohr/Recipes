@@ -1,5 +1,5 @@
 # Roasted Chicken Gyros with Tzatziki and Feta Fries
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Roasted Chicken Gyros](https://www.halfbakedharvest.com/roasted-chicken-gyros/)
 

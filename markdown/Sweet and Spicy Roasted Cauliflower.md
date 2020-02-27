@@ -1,5 +1,5 @@
 # Sweet and Spicy Roasted Cauliflower
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian
 - - - -
 [Sweet and Spicy Cauliflower - Sweet and Spicy Roasted Cauliflower](https://www.howsweeteats.com/2018/04/sweet-and-spicy-roasted-cauliflower/)
 

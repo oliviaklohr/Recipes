@@ -1,5 +1,5 @@
 # Spinach and Mushroom Chicken
-#cooking/recipe
+#cooking/recipe #cooking/dinner
 - - - -
 
 ## Ingredients

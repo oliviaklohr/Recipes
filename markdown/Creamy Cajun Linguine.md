@@ -1,5 +1,5 @@
 # Creamy Cajun Linguine
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner
 - - - -
 [creamy cajun linguine : a small batch recipe for two. | a flavor journal.](https://aflavorjournal.com/creamy-cajun-linguine-a-small-batch-recipe-for-two/)
 
@@ -38,3 +38,5 @@ Add cooked linguine, and toss to coat. Garnish with thinly diced green onion.
 If you want a LOT of cream sauce, use 1/2 cup each of half and half and heavy cream, rather than 1/3 cup.
 
 Cajun seasoning typically has enough salt in it, so I recommend only adding pepper to taste at the end!
+
+Also delicious with shrimps!

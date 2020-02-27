@@ -1,5 +1,5 @@
 # Baked Fish and Chips
-#cooking/recipe #cooking/one pan#
+#cooking/recipe #cooking/one pan# #cooking/dinner
 - - - -
 [Baked Fish and Chips Recipe | Well Plated by Erin](https://www.wellplated.com/baked-fish-and-chips/)
 

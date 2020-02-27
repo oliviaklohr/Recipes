@@ -1,5 +1,5 @@
 # Cream Cheese Swirled Pumpkin Bread with Salted Maple Butter
-#cooking/recipe #2019/December# #cooking/bread
+#cooking/recipe #2019/December# #cooking/bread #cooking/dessert
 - - - -
 [Link](https://www.halfbakedharvest.com/cream-cheese-swirled-pumpkin-banana-bread/)
 

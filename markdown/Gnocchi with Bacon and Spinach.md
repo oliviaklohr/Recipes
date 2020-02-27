@@ -1,5 +1,5 @@
 # Gnocchi with Bacon and Spinach
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Gnocchi with Bacon and Spinach](https://www.framedcooks.com/2016/07/gnocchi-bacon-spinach.html)
 

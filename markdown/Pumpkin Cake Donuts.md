@@ -1,5 +1,5 @@
 # Pumpkin Cake Donuts
-#cooking/recipe #2019/November #cooking/for large groups#
+#cooking/recipe #2019/November #cooking/for large groups# #cooking/dessert #cooking/breakfast
 - - - -
 [Pumpkin Cake Donuts](https://damndelicious.net/2018/10/24/pumpkin-cake-donuts/) 
 

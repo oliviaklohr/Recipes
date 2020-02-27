@@ -1,5 +1,5 @@
 # Salted Bourbon Pecan Pumpkin Pie
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Salted Bourbon Pecan Pumpkin Pie | Half Baked Harvest](https://www.halfbakedharvest.com/salted-bourbon-pecan-pumpkin-pie/)
 

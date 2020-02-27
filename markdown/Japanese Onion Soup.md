@@ -1,5 +1,5 @@
 # Japanese Onion Soup
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/side dish# 
 - - - -
 [Miyabi Japanese Onion Soup Recipe - Genius Kitchen](https://www.geniuskitchen.com/recipe/miyabi-japanese-onion-soup-410663?ftab=tweaks)
 

@@ -1,5 +1,5 @@
 # Sun Dried Tomato Basil and Parmesan Orzo with Chicken
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner
 - - - -
 [Sun Dried Tomato Basil and Parmesan Orzo with Chicken - Cooking Classy](https://www.cookingclassy.com/sun-dried-tomato-basil-and-parmesan-orzo-with-chicken/)
 

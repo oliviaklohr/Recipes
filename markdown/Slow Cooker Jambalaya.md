@@ -1,5 +1,5 @@
 # Slow Cooker Jambalaya
-#cooking/recipe #cooking/slow cooker# #cooking# #2019/March#
+#cooking/recipe #cooking/slow cooker#  #2019/March# #cooking/dinner
 - - - -
 [Slow Cooker Jambalaya](https://www.lecremedelacrumb.com/slow-cooker-jambalaya/)
 

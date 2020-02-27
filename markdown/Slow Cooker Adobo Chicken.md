@@ -1,5 +1,5 @@
 # Slow Cooker Adobo Chicken
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Slow Cooker Adobo Chicken | Creme De La Crumb](http://lecremedelacrumb.com/2014/08/slow-cooker-adobo-chicken.html)
 

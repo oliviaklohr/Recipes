@@ -1,5 +1,5 @@
 # Fried Honey Bananas
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dessert
 - - - -
 [Fried Honey Bananas](https://rachelschultz.com/2013/05/15/fried-honey-bananas/) 
 

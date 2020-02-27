@@ -1,5 +1,5 @@
 # Crepes with Maple Glazed Apples
-#cooking/recipe #2018/December#
+#cooking/recipe #2018/December# #cooking/dessert
 - - - -
 [Crepes with Maple Glazed Apples](https://dennistheprescott.com/2016/02/09/crepes-with-maple-glazed-apples/)
 

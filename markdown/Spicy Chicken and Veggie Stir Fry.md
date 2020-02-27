@@ -1,5 +1,5 @@
 # Spicy Chicken and Veggie Stir Fry
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Spicy Chicken Vegetable Stir Fry by Karyl’s Kulinary Krusade](https://karylskulinarykrusade.com/recipe-spicy-chicken-vegetable-stir-fry/)
 

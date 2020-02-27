@@ -1,5 +1,5 @@
 # Baked Caprese Gnocchi
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/vegetarian
 - - - -
 [Baked Caprese Gnocchi](https://simply-delicious-food.com/baked-caprese-gnocchi/)
 

@@ -1,5 +1,5 @@
 # Almond Butter Granola
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/breakfast #cooking/snack
 - - - -
 [Almond Butter Granola - Damn Delicious](https://damndelicious.net/2019/03/13/almond-butter-granola/)
 

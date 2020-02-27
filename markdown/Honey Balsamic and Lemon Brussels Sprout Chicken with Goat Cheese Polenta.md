@@ -1,5 +1,5 @@
 # Honey Balsamic and Lemon Brussels Sprout Chicken with Goat Cheese Polenta
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Honey Balsamic and Lemon Brussels Sprout Chicken with Goat Cheese Polenta. - Half Baked Harvest](https://www.halfbakedharvest.com/honey-balsamic-and-lemon-brussels-sprout-chicken-with-goat-cheese-polenta/)
 

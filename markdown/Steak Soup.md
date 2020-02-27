@@ -1,5 +1,5 @@
 # Steak Soup
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Steak Soup](http://www.plainchicken.com/2015/11/slow-cooker-steak-soup.html)
 

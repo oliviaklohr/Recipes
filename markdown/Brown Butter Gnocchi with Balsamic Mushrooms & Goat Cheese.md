@@ -1,5 +1,5 @@
 # Brown Butter Gnocchi with Balsamic Mushrooms & Goat Cheese
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Crispy Brown Butter Sweet Potato Gnocchi with Balsamic Caramelized Mushrooms + Goat Cheese + VIDEO. - Half Baked Harvest](https://www.halfbakedharvest.com/crispy-brown-butter-sweet-potato-gnocchi-balsamic-caramelized-mushrooms-goat-cheese/)
 

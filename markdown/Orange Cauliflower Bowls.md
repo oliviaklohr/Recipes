@@ -1,5 +1,5 @@
 # Orange Cauliflower Bowls
-#cooking/recipe #2019/November #cooking/30 Minutes or Less#
+#cooking/recipe #2019/November #cooking/30 Minutes or Less# #cooking/vegetarian
 - - - -
 [Orange Cauliflower Bowls](https://damndelicious.net/2019/03/04/orange-cauliflower-bowls/) 
 

@@ -1,5 +1,5 @@
 # Bourbon Glazed Peach Fritters
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Bourbon Glazed Peach Fritters. - Half Baked Harvest](https://www.halfbakedharvest.com/bourbon-glazed-peach-fritters/)
 

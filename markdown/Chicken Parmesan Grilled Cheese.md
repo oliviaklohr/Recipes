@@ -1,5 +1,5 @@
 # Chicken Parmesan Grilled Cheese
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/30 Minutes or Less#
 - - - -
  [Chicken Parmesan Grilled Cheese](https://damndelicious.net/2016/11/04/chicken-parmesan-grilled-cheese/) 
 

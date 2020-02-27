@@ -1,5 +1,5 @@
 # Ham and Cheese Hash Brown Foil Packets
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner #cooking/breakfast 
 - - - -
 [Ham and Cheese Hash Brown Foil Packets](https://damndelicious.net/2017/10/20/ham-and-cheese-hash-brown-foil-packets/) 
 

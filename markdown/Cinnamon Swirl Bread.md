@@ -1,5 +1,5 @@
 # Cinnamon Swirl Bread
-#cooking/recipe #2019/March#
+#cooking/recipe #2019/March# #cooking/bread #cooking/dessert
 - - - -
 [Cinnamon Swirl Bread](http://www.5boysbaker.com/cinnamon-swirl-bread/)
 

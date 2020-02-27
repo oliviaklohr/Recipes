@@ -1,5 +1,5 @@
 # Baked Chicken Gnocchi with Garlic Asiago Cream Sauce
-#cooking/recipe #2019/November
+#cooking/recipe #2019/November #cooking/dinner
 - - - -
 [Baked Chicken Gnocchi with Garlic Asiago Cream Sauce — Eatwell101](https://www.eatwell101.com/chicken-gnocchi-garlic-asiago-sauce-recipe)
 

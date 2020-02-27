@@ -1,5 +1,5 @@
 #  Bahn Mi Rice Bowls
-#cooking/recipe #cooking/slow cooker# #2019/March#
+#cooking/recipe #cooking/slow cooker# #2019/March# #cooking/dinner
 - - - -
 [Bahn Mi Rice Bowls](http://www.skinnytaste.com/slow-cooker-banh-mi-rice-bowls/)
 

@@ -1,5 +1,5 @@
 # Strawberry Rhubarb Cobbler with Honey Butter Biscuits
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dessert
 - - - -
 [Strawberry Rhubarb Cobbler with Honey Butter Biscuits. - Half Baked Harvest](https://www.halfbakedharvest.com/strawberry-rhubarb-cobbler-honey-butter-biscuits/)
 

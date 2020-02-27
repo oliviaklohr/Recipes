@@ -1,5 +1,5 @@
 # Tomato Bisque
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner #cooking/side dish#
 - - - -
 [Tomato Bisque](https://www.foodnetwork.com/recipes/food-network-kitchen/tomato-bisque-recipe-2011496)
 

@@ -1,5 +1,5 @@
 # Chai Pumpkin Pie with Maple Whipped Cream
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Chai Pumpkin Pie with Maple Whipped Cream. - Half Baked Harvest](https://www.halfbakedharvest.com/chai-pumpkin-pie-with-maple-whipped-cream/)
 

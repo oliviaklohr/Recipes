@@ -1,5 +1,5 @@
 # New England Clam Chowder
-#cooking/recipe #2019/January#
+#cooking/recipe #2019/January# #cooking/dinner 
 - - - -
 [New England Clam Chowder](http://www.cookingwithcocktailrings.com/soup/2018/new-england-clam-chowder)
 

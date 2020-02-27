@@ -1,5 +1,5 @@
 # 8 Ingredient Garlic Butter Mushroom and Goat Cheese Fettuccine
-#cooking/recipe #2019/July# #cooking/30 Minutes or Less#
+#cooking/recipe #2019/July# #cooking/30 Minutes or Less# #cooking/dinner
 - - - -
  [8 Ingredient Garlic Butter Mushroom and Goat Cheese Fettuccine](https://www.halfbakedharvest.com/8-ingredient-garlic-butter-mushroom-and-goat-cheese-fettuccine/) 
 

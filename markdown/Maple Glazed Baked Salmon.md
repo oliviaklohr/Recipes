@@ -1,5 +1,5 @@
 # Maple Glazed Baked Salmon
-#cooking/recipe #2019/July#
+#cooking/recipe #2019/July# #cooking/dinner
 - - - -
 [Maple Glazed Baked Salmon. - Half Baked Harvest](https://www.halfbakedharvest.com/maple-glazed-baked-salmon/)
 

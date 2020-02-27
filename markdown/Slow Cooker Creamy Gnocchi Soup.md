@@ -1,5 +1,5 @@
 # Slow Cooker Creamy Gnocchi Soup
-#cooking/recipe #2019/November #cooking/slow cooker#
+#cooking/recipe #2019/November #cooking/slow cooker# #cooking/dinner
 - - - -
 [Best Slow-Cooker Creamy Gnocchi Soup Recipe - How to Make Slow-Cooker Creamy Gnocchi Soup](https://www.delish.com/cooking/recipe-ideas/a29416622/slow-cooker-creamy-gnocchi-soup-recipe/)
 
