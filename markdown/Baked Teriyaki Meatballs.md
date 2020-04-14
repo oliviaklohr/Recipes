@@ -5,7 +5,7 @@
 
 ## Ingredients
 2 lbs ground pork
-4 eggs
+4 eggs (mayonnaise can be substituted in a pinch!)
 1 tbsp fresh ginger, grated
 6 garlic cloves, minced
 1 cup panko bread crumbs

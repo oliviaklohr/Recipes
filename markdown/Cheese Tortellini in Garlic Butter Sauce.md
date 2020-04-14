@@ -1,13 +1,12 @@
-# Cheese Tortellini in Garlic Butter Sauce
-#cooking/recipe #2019/January# #cooking/dinner #cooking/vegetarian
+#  Cheese Tortellini in Garlic Butter Sauce
+#cooking/recipe #2020/March #cooking/dinner #cooking/vegetarian #cooking/30 Minutes or Less#
 - - - -
-[Cheese Tortellini in Garlic Butter Sauce](https://www.culinaryhill.com/cheese-tortellini-in-garlic-basil-sauce/)
+[Cheese Tortellini in Garlic Butter Sauce Recipe | Culinary Hill](https://www.culinaryhill.com/cheese-tortellini-in-garlic-basil-sauce/#wprm-recipe-container-26942)
 
 ## Ingredients
 32 ounces chicken broth or vegetable broth, divided
 2 tablespoons cornstarch
-1 (16 ounce) package frozen cheese tortellini 
-	**see notes**
+1 (16 ounce) package frozen cheese tortellini (see notes)
 4 tablespoons butter
 2 cloves garlic minced
 2 teaspoons dried basil
@@ -23,14 +22,16 @@ Add broth-cornstarch mixture and bring to a boil; simmer until the mixture thick
 
 Pour into a serving dish and garnish with Parmesan cheese and parsley, if desired.
 
-## Recipe Notes
+### Recipe Notes
+To make this dish vegetarian, substitute vegetable broth for the chicken broth.
+
 Refrigerated tortellini can be substituted; it will float in 2 to 3 minutes. If you want to use dried tortellini, follow the instructions on the package (should be about 10 to 11 minutes).
 
 Serves 8 as an appetizer or first course (2 ounces per person, 275 calories per serving). Keep warm in a slow cooker if serving a buffet.
 
 ## Nutrition
 ### Servings: 4
-Calories: 551cal
-Fat: 22.5g
-Carbs: 65g
-Protein: 21g
+Calories: 551 kcal
+Fat: 
+Carbs: 
+Protein: 
